@@ -2,11 +2,29 @@
 - title: Home
   url: /
 
-- title: Presentations
-  url: /presentations/
+- title: Papers
+  url: /papers/
 
-- title: Resume
-  url: /resume/
+- title: Articles
+  url: /articles/
 
-- title: Blog
-  url: /blog/
+- title: Honors
+  url: /honors/
+  
+- title: Blogging
+  url: /blogs/
+
+- title: Teaching
+  url: /teaching/
+  
+ - title: Service
+  url: /service/
+ 
+- title: C.V.
+  url: /cv/
+
+- title: Media
+  url: /media/
+  
+- title: Undergraduate Work
+  url: /undergrad/
