@@ -1,27 +1,28 @@
 # Site wide configuration
 
-title: Site Title
+title: Daniel Gorman Jr.
 locale: en_US
 logo: # filename of a logo image that has been placed into your images directory
 
 # Enter the following platform usernames if you would like for them to appear on your site.
 owner:
-  name: Your Name
+  name: Daniel Gorman Jr.
   avatar: bio-photo.jpg
-  bio: "A brief description of yourself."
-  email: #emailaddress
+  bio: Daniel Gorman Jr. is a historian and teacher.
+  email: dgormanj@ur.rochester.edu
   # Do not include the @ symbol in your Twitter username
-  twitter: #username
-  linkedin: #username
-  github: #username
-  orcid: # ID Number (ex. 0000-0000-0000-0000)
-  researchgate: #username
+  twitter: @DanGorman2
+  linkedin: daniel-gorman-jr-81a1353a/
+  github: 
+  orcid: 0000-0003-1425-4581
+  researchgate: Daniel_Gorman_Jr
+  academia: DanielGormanJr
   mendeley: #username
   google:
     plus: #username
     analytics:
     verify:
-    scholar: #id
+    scholar: P6zicVIAAAAJ
   facebook: #username
   instagram: #username
   bing-verify:
