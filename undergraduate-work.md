@@ -53,7 +53,8 @@ I had a lot of fun as an undergrad at the University of Rochester....
 
 ## Volunteer Experience ##
 
-* Transcription Volunteer, Post Family Papers Project, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation, October 2013 and February 2014.		
+* Transcription Volunteer, Post Family Papers Project, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation, October 2013 and February 2014.
+
 * Community Organizer, Obama for America, Hudson Valley, N.Y., Summer 2011.
 
 ## Employment ##
