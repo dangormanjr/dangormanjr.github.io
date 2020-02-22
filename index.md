@@ -7,7 +7,7 @@ Hello! My name is Daniel Gorman Jr. (Dan to friends), and I am a historian and h
 
 Currently I am a history Ph.D. candidate and a 2019–21 Andrew W. Mellon Digital Humanities Fellow at the University of Rochester. Previously I received an M.A. in history from Villanova University, and a B.A. in history and religion from the University of Rochester. I am a member of Phi Beta Kappa and a 2013 alumnus of the Beinecke Scholarship. 
 
-## Current Interests and Projects:
+## Current Interests and Projects
 
 - Ph.D. Dissertation: "Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption." Advisor: Joan Shelley Rubin, Rochester Dept. of History. 
 - Assorted digital humanities projects as a Mellon Fellow.
