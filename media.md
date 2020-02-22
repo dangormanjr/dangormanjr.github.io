@@ -1,4 +1,4 @@
-# Media #
+# Media
 
 **This page provides an index of media appearances and contributions.**
 
