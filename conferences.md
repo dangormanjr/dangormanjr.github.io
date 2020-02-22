@@ -26,7 +26,7 @@
 
 * “Diversity and Equity in Digital History: A Seminar and Conversation.” Invited speakers: Tamar Carroll and Averill Earls. Organized in conjunction with the HASTAC Scholars Program. University of Rochester Humanities Center, September 20, 2019. [https://www.hastac.org/opportunities/diversity-and-equity-digital-history-seminar-and-conversation](https://www.hastac.org/opportunities/diversity-and-equity-digital-history-seminar-and-conversation).
 
-## I have given several invited lectures and presentations. ##
+### I have also given several invited lectures and presentations. ###
 
 * HASTAC Digital Fridays: “The Grad School Application Process: A View from the Trenches.” HASTAC and The Futures Initiative, Graduate Center, City University of New York, Sept. 20, 2019. [https://www.youtube.com/watch?v=_sQ1-9set2U](https://www.youtube.com/watch?v=_sQ1-9set2U).
 
