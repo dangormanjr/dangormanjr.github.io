@@ -1,4 +1,4 @@
-# Blogs #
+# Blogs
 
 *	“Songs of Innocent XML.” *Hell’s Printing Press: The Blog of the Blake Archive and Blake Quarterly*, Nov. 6, 2019. [https://blog.blakearchive.org/2019/11/06/songs-of-innocent-xml/?_thumbnail_id=7221](https://blog.blakearchive.org/2019/11/06/songs-of-innocent-xml/?_thumbnail_id=7221).
 
