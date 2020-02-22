@@ -1,3 +1,3 @@
-# C.V. #
+# C.V.
 
 Coming soon!
