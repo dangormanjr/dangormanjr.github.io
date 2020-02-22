@@ -1,4 +1,4 @@
-# Honors and Awards #
+# Honors and Awards
 
 ## External ##
 * 2020 University of Victoria Digital Humanities Summer Institute Tuition Scholarship. 
