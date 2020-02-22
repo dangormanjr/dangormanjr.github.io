@@ -1,5 +1,7 @@
 # Teaching
 
+I have experience teaching U.S. cultural and religious history, as well as topics in the history of Western civilization.
+
 ## Instructor of Record ##
 
 * Adjunct professor, “Cults, Chakras, & Crunchy Granola: New Age Religions in America,” 4.0-credit summer course, University of Rochester, July 2019.
