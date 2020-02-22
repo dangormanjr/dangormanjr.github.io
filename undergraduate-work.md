@@ -43,15 +43,15 @@ I had a lot of fun as an undergrad at the University of Rochester....
 
 ## Libary Exhibits ##
 
-* Featured undergraduate researcher and essay contributor, Nurturing Inquiry: Exploring Special Collections. Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, October 7, 2013 – February 28, 2014.
+* Featured undergraduate researcher and essay contributor, *Nurturing Inquiry: Exploring Special Collections*. Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, October 7, 2013 – February 28, 2014.
 
-*	Poster author, “Mr. Moyers Goes To Myth Land: The Power of Myth Revisited.” In Student Research Posters (Exhibit). Gleason Library, University of Rochester, June 7 – September 16, 2013. [https://www.library.rochester.edu/blog/Posters-on-display](https://www.library.rochester.edu/blog/Posters-on-display). 
+*	Poster author, “Mr. Moyers Goes To Myth Land: The Power of Myth Revisited.” In *Student Research Posters* (Exhibit). Gleason Library, University of Rochester, June 7 – September 16, 2013. [https://www.library.rochester.edu/blog/Posters-on-display](https://www.library.rochester.edu/blog/Posters-on-display). 
 
-*	Featured photographer and essay contributor, Travel Stories: 19th Century – Present. Reference Dept. and Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, April 26 – December 27, 2013. [http://www.library.rochester.edu/node/33875](http://www.library.rochester.edu/node/33875). 
+*	Featured photographer and essay contributor, *Travel Stories: 19th Century – Present*. Reference Dept. and Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, April 26 – December 27, 2013. [http://www.library.rochester.edu/node/33875](http://www.library.rochester.edu/node/33875). 
 
-*	Essay contributor, A Citizen’s Right to Vote: The United States vs. Susan B. Anthony. Friedlander Lobby, Rush Rhees Library, University of Rochester, February 4 – May 20, 2013. [http://www.library.rochester.edu/node/33709](http://www.library.rochester.edu/node/33709).
+*	Essay contributor, *A Citizen’s Right to Vote: The United States vs. Susan B. Anthony*. Friedlander Lobby, Rush Rhees Library, University of Rochester, February 4 – May 20, 2013. [http://www.library.rochester.edu/node/33709](http://www.library.rochester.edu/node/33709).
 
-*	Essay contributor, The Plutzik Series: Fifty Years of Poetry, Fiction, and Conversation. Dept. of Rare Book, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, September 18, 2012 – January 11, 2013. [http://www.library.rochester.edu/node/33525](http://www.library.rochester.edu/node/33525).
+*	Essay contributor, *The Plutzik Series: Fifty Years of Poetry, Fiction, and Conversation*. Dept. of Rare Book, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, September 18, 2012 – January 11, 2013. [http://www.library.rochester.edu/node/33525](http://www.library.rochester.edu/node/33525).
 
 ## Volunteer Experience ##
 
