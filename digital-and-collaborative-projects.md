@@ -1,3 +1,3 @@
-# Digital and Collaborative Projects #
+# Digital and Collaborative Projects
 
 Coming soon!
