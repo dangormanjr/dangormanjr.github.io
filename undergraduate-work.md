@@ -57,8 +57,6 @@ I had a lot of fun as an undergrad at the University of Rochester....
 
 * Transcription Volunteer, Post Family Papers Project, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation, October 2013 and February 2014.
 
-* Community Organizer, Obama for America, Hudson Valley, N.Y., Summer 2011.
-
 ## Employment ##
 
 * Archival Research Assistant for Dr. Margarita S. Guillory, University of Rochester, Dept. of Religion & Classics, May–July 2013.
