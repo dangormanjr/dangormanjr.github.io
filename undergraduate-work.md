@@ -1,4 +1,4 @@
-# Undergraduate Work #
+# Undergraduate Work
 
 I had a lot of fun as an undergrad at the University of Rochester....
 
