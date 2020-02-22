@@ -1,3 +1,6 @@
+# Conferences #
+
+## Conference Papers and Presentations ##
 * Co-author with Andreína Soto Segura. “Writing History Among the Tombstones: Notes from Har Hasetim.” “Making History Public(s): Presenting the Collective,” University of Michigan 2019 Graduate Student Conference in U.S. History, May 10–11, 2019. 
 
 * “Fair Traveler: May Bragdon at the Columbian and Pan-American Expositions.” “(Im)material Culture: Identity and Agency in Commonplace Objects,” 28th Annual Milton Plesur Graduate History Conference, University at Buffalo, March 8–9, 2019. [https://gsa.buffalo.edu/ubgha/milton-plesur-graduate-history-conference/2019-2/](https://gsa.buffalo.edu/ubgha/milton-plesur-graduate-history-conference/2019-2/).
