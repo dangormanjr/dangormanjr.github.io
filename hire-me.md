@@ -1,4 +1,4 @@
-# Hire Me #
+# Hire Me
 
 I am available to do: 
 - Historical research,  
