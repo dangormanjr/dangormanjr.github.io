@@ -31,7 +31,7 @@
 
 *	Interviewed in: Lopes, Melissa Greco. “Students in Rome Experience History in the Making.” *The Buzz* (University of Rochester News Service), March 14, 2013. [https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/](https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/).
 
-•	Interviewed in: Lee, Traci G. “Young voters were the key to Obama’s swing state wins.” *Melissa Harris-Perry Blog* (MSNBC), November 9, 2012. [http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/](http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/).
+*	Interviewed in: Lee, Traci G. “Young voters were the key to Obama’s swing state wins.” *Melissa Harris-Perry Blog* (MSNBC), November 9, 2012. [http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/](http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/).
 
 ## Theatre Credits ##
 *	Featured vocalist, *Pump It Up: A 40th Anniversary Celebration of New Wave*, February 17, 2018 concert, University of Rochester Institute for Popular Music.
