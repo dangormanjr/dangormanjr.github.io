@@ -1,4 +1,4 @@
-I occasionally do work as a journalist, while drawing on my training as a historian.
+I periodically use my training as a historian to produce works of academic journalism.
 
 *	“The Center of the Mormon World: The Hill Cumorah Pageant.” *Sacred Matters*, August 30, 2017. [https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/](https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/).
 
