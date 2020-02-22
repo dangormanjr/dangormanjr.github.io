@@ -12,15 +12,15 @@
 *	Interviewed in: *Perspectives with Curt Smith*, March 24, 2012. WXXI Rochester.
 
 ## Journalism ##
-* The Daily Pulp: Contributing Writer, January 2013 – February 2015; Associate Editor and Content Director, October 2014–February 2015. https://web.archive.org/web/20150430141527/http://the-daily-pulp.com/author/dgorman/. 
+* *The Daily Pulp*: Contributing Writer, January 2013 – February 2015; Associate Editor and Content Director, October 2014–February 2015. https://web.archive.org/web/20150430141527/http://the-daily-pulp.com/author/dgorman/. 
 
-* USA Today College: Contributing Writer, January 11, 2013. [https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/](https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/).
+* *USA Today College*: Contributing Writer, January 11, 2013. [https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/](https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/).
 
 *	*NextGen Journal*: “Voices” Contributor, October 2011 – November 2012. [https://web.archive.org/web/20121215040522/http://www.nextgenjournal.com/author/dan-gorman/](https://web.archive.org/web/20121215040522/http://www.nextgenjournal.com/author/dan-gorman/).
 
 *	University of Rochester *Campus Times*: Senior Staff Writer, September 2010 – May 2014; Copy Editor, December 2010 – May 2011. [http://www.campustimes.org/author/dgormanj/](http://www.campustimes.org/author/dgormanj/).
 
-## Print Appearances ##
+## Print and Electronic Periodical Appearances ##
 *	Featured in the June 28, 2017, *Chronicle of Higher Education Daily Briefing*.
 
 *	Interviewed in: Lynch, Emily Hessney. “Dan Gorman, On a Tuesday at Orange Glory.” *I Heart Roc*, Interview No. 76, March 22, 2017. [http://www.iheartroc.com/work/dan-gorman/](http://www.iheartroc.com/work/dan-gorman/).
