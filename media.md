@@ -3,6 +3,8 @@
 ## Radio / Podcasts ##
 * Interviewed in “Just One Story: Joseph Campbell and ‘The Hero’s Journey.’” Produced by Matthew Lazin-Ryder. *Ideas with Nahlah Ayed*. Canadian Broadcasting Corporation, September 3, 2019. [https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649](https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649).
 
+*	Podcast Interviews for The Religious Studies Project, May 2017–Present. [http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/](http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/).
+
 *	Interviewed in the Sept. 11, 2016, episode of *Schoolcast*, KRO–NCRV Radioschool (Netherlands). Dead link: [https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016](https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016).
 
 *	Producer and Program Host, *Tangents*. The Sting, WRUR’s Online Radio Community, Spring 2014.
