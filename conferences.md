@@ -1,5 +1,3 @@
-# Conferences 
-
 ## Conference Papers and Presentations ##
 * Co-author with Andreína Soto Segura. “Writing History Among the Tombstones: Notes from Har Hasetim.” “Making History Public(s): Presenting the Collective,” University of Michigan 2019 Graduate Student Conference in U.S. History, May 10–11, 2019. 
 
