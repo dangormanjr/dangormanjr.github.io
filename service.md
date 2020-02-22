@@ -1,4 +1,4 @@
-# Volunteer Experience and Professional Service #
+# Volunteer Experience and Professional Service
 
 ## Historical Work ##
 * Conference Submission Peer Reviewer, Digital Humanities 2020: “Carrefours/Intersections,” Ottawa, Canada (Alliance of Digital Humanities Organizations), Fall 2019.
