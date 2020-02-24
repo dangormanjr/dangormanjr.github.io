@@ -3,7 +3,7 @@
 I am available to do: 
 - Historical research,  
 - Contract lecturing, 
-- Copy editing, 
+- Copy editing and manuscript editing, 
 - Policy analysis, 
 - Digital humanities consulting, 
 - Dramatugry, *and* 
