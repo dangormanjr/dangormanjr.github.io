@@ -1,6 +1,6 @@
 # Undergraduate Work
 
-I had a lot of fun as an undergrad at the University of Rochester....
+This page provides an archive of the academic work I did as an undergraduate at the University of Rochester. 
 
 ## Peer-Reviewed Undergraduate Papers ##
 
