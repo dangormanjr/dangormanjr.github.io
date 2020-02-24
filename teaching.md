@@ -20,6 +20,8 @@ I have experience teaching U.S. cultural and religious history, as well as topic
 
 ## Guest Lectures ##
 
+* Guest Lecturer, "Wives, Witches, and Wenches: Women in American History," 4.0-credit course, Prof. Brianna Theobald, University of Rochester, February 24, 2020.
+
 * Guest Lecturer, “American Educational and Linguistic Practices,” 3.0-credit graduate course, Prof. Ali Safivand, Warner School of Education, University of Rochester, November 19, 2019. 
 
 * Guest Lecturer, “Anthropology of Tourism,” 4.0-credit course, Visiting Prof. Magdalena Banaszkiewicz, University of Rochester, December 1, 2016.
