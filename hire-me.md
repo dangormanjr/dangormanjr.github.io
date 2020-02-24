@@ -5,7 +5,8 @@ I am available to do:
 - Contract lecturing, 
 - Copy editing, 
 - Policy analysis, 
-- Digital humanities consulting, *and* 
+- Digital humanities consulting, 
+- Dramatugry, *and* 
 - Genealogical research. 
 
 Past clients for whom I have done remote work include a staff writer for *The New Yorker* and a faculty member from UNSW Canberra at the Australian Defence Force Academy. 
