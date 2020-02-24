@@ -9,8 +9,8 @@ I am available to do:
 - Dramatugry, *and* 
 - Genealogical research. 
 
+I am not seeking a full-time position at this time, as I am still a full-time Ph.D. candidate. 
+
 Past clients for whom I have done remote work include a staff writer for *The New Yorker* and a faculty member from UNSW Canberra at the Australian Defence Force Academy. 
 
 All rates are flexible. Please contact me to discuss. 
-
-I am not seeking a full-time position at this time. 
