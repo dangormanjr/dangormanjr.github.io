@@ -6,7 +6,7 @@ I am available to do:
 - Copy editing and manuscript editing, 
 - Policy analysis, 
 - Digital humanities consulting, 
-- Dramatugry, *and* 
+- Dramaturgy, *and* 
 - Genealogical research. 
 
 I am not seeking a full-time position at this time, as I am still a full-time Ph.D. candidate. 
