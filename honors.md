@@ -46,4 +46,6 @@
 
 * 2014 Alice DeSimone Award: Presented by University of Rochester, Wilson Commons Student Activities Office to “students whose contributions to co-curricular life at the University have strengthened community spirit and involvement.” 
 
+* February 2012 Community Service Monthly Award, given by the Meliora Chapter of the National Residence Hall Honorary.
+
 * November 29, 2011	Iota Book Award, given to sophomores by the Iota Chapter of Phi Beta Kappa.
