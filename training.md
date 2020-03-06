@@ -1,4 +1,4 @@
-# Trainng
+# Training
 
 This page lists supplementary training that I have completed outside of my academic coursework.
 
