@@ -57,6 +57,18 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * Transcription Volunteer, Post Family Papers Project, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation, October 2013 and February 2014.
 
+## Undergraduate Leadership ##
+
+* Creative Director for Spring 2014 Concert, University of Rochester No Jackets Required Music Performance Group, December 2013–February 2014.
+
+* Senior Orientation Volunteer, University of Rochester Freshman Orientation: Senior Orientation Volunteer, August–September 2013. Also: Orientation Volunteer, August–September 2011 and 2012.
+
+* Vice President, University of Rochester Students’ Association for Interfaith Cooperation, April 2013–May 2014.
+
+* President, U.R. Protestant Chapel Community, April 2012–May 2013.
+
+* Steering Committee, U.R. Protestant Chapel Community, April 2011–April 2012. 
+
 ## Employment ##
 
 * Archival Research Assistant for Dr. Margarita S. Guillory, University of Rochester, Dept. of Religion & Classics, May–July 2013.
