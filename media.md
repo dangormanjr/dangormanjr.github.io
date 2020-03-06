@@ -1,6 +1,6 @@
 # Media
 
-**This page provides an index of media appearances and contributions.**
+This page provides an index of media appearances and contributions.
 
 ## Radio / Podcasts ##
 * Interviewed in “Just One Story: Joseph Campbell and ‘The Hero’s Journey.’” Produced by Matthew Lazin-Ryder. *Ideas with Nahlah Ayed*. Canadian Broadcasting Corporation, September 3, 2019. [https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649](https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649).
