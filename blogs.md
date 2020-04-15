@@ -1,5 +1,7 @@
 # Blogs
 
+* "Waves of Regret and Waves of Joy: Searching for the End of the World in the Blake Archive." *Hell’s Printing Press: The Blog of the Blake Archive and Blake Quarterly*, Apr. 10, 2020. [https://blog.blakearchive.org/2020/04/10/searching-end-of-the-world/](https://blog.blakearchive.org/2020/04/10/searching-end-of-the-world/).
+
 *	“Songs of Innocent XML.” *Hell’s Printing Press: The Blog of the Blake Archive and Blake Quarterly*, Nov. 6, 2019. [https://blog.blakearchive.org/2019/11/06/songs-of-innocent-xml/?_thumbnail_id=7221](https://blog.blakearchive.org/2019/11/06/songs-of-innocent-xml/?_thumbnail_id=7221).
 
 *	“Cults, Chakras, and Crunchy Granola in the Classroom.” *Teaching United States History*, Oct. 3, 2019. [http://www.teachingushistory.co/2019/10/cults-chakras-and-crunchy-granola-in-the-classroom.html](http://www.teachingushistory.co/2019/10/cults-chakras-and-crunchy-granola-in-the-classroom.html). 
