@@ -33,8 +33,7 @@
 * Undergraduate Admissions Alumni Interviewer, University of Rochester, Winter 2015–Present. 
 
 ## University Affairs ##
-
-* Representative, University of Rochester Graduate Student and Postdoctoral Trainee Council, Sept. 2019–Present. 
+* AS&E Representative, University of Rochester Graduate Student and Postdoctoral Trainee Council, Sept. 2019–Present. 
 
 * Graduate Student Representative, University of Rochester AS&E Faculty Council, Sept. 2019–Present.
 
@@ -61,7 +60,6 @@
 * Student search committee for Villanova University’s first Provost, March 2015. 
 
 ## Political Work ##
-
 * Volunteer, Mitch Gruber for Rochester City Council, Summer 2017.
 
 * Campus Organizing Fellow, Organizing for Action, Spring 2017. 
