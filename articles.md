@@ -17,4 +17,6 @@
 *	Podcast Interviews for The Religious Studies Project, May 2017–Present. [http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/](http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/).
 
 ## Additional Publications ##
+* Contributor to the 2019–20 edition of *The American Yawp: A Massively Collaborative Open U.S. History Textbook*. [http://www.americanyawp.com/text/contributors/](http://www.americanyawp.com/text/contributors/).
+
 *	“Swinging in the Stars.” In *The Frankie Manning Centennial & World Lindy Hop Day Commemorative Book*, edited by Deborah Huisken and Mandi Gould, 62–65. Houston: The Frankie Manning Foundation, 2014. [http://www.frankiemanningfoundation.org/wp-content/uploads/2014/09/FrankieCommemorativeBook.pdf](http://www.frankiemanningfoundation.org/wp-content/uploads/2014/09/FrankieCommemorativeBook.pdf).
