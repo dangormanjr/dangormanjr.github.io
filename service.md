@@ -33,7 +33,7 @@
 * Undergraduate Admissions Alumni Interviewer, University of Rochester, Winter 2015–Present. 
 
 ## University Affairs ##
-* AS&E Representative, University of Rochester Graduate Student and Postdoctoral Trainee Council, Sept. 2019–Present. 
+* AS&E Representative, University of Rochester Graduate Student and Postdoctoral Fellow Advisory Council, Sept. 2019–Present. 
 
 * Graduate Student Representative, University of Rochester AS&E Faculty Council, Sept. 2019–Present.
 
