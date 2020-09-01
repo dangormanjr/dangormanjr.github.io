@@ -9,9 +9,14 @@ Currently I am a history Ph.D. candidate and a 2019–21 Andrew W. Mellon Digita
 
 ## Current Interests and Projects
 
-- Ph.D. Dissertation: "Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption." Advisor: Joan Shelley Rubin, Rochester Dept. of History. 
-- Assorted digital humanities projects as a Mellon Fellow.
-- Philadelphia Jewish history, focusing on the cemetery of Har Hasetim, located in the suburb of Gladwyne. 
-- The legacy of U.S. anthropologist Lewis Henry Morgan.
-- The 1893 Columbian Exposition and the beginnings of modern U.S. tourism.
+- Ph.D. Dissertation: "Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption." Advisor: Joan Shelley Rubin, Rochester Dept. of History. This dissertation focuses on the expulsion of a Spiritualist, Frederick Willis, from Harvard Divinity School in 1857, the ensuing public debate between Spiritualists and skeptics, and the connections between Spiritualism and broader religious currents of the nineteenth century.
+
+- Assorted digital humanities projects as a Mellon Fellow. The purpose of the program is to gain a well-rounded understanding of digital tools and methods that humanists and social scientists can integrate into teaching and learning. Learn more about the Mellon Fellowship [here](http://www.sas.rochester.edu/humanities/fellowships/mellon.html).
+
 - Project-based learning for history classrooms. 
+
+- The 1893 Columbian Exposition and the beginnings of modern U.S. tourism.
+
+- Philadelphia Jewish history, focusing on the cemetery of Har Hasetim, located in the suburb of Gladwyne. 
+
+- The legacy of U.S. anthropologist Lewis Henry Morgan.
