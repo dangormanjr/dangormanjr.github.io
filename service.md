@@ -35,11 +35,11 @@
 * Undergraduate Admissions Alumni Interviewer, University of Rochester, Winter 2015–Present. 
 
 ## University Affairs ##
-* AS&E Representative, University of Rochester Graduate Student and Postdoctoral Fellow Advisory Council, Sept. 2019–Present. 
+* AS&E Representative, University of Rochester Graduate Student and Postdoctoral Fellow Advisory Council, Sept. 2019–May 2020. 
 
-* Graduate Student Representative, University of Rochester AS&E Faculty Council, Sept. 2019–Present.
+* Graduate Student Representative, University of Rochester AS&E Faculty Council, Sept. 2019–May 2020.
 
-* President, University of Rochester AS&E Graduate Student Association, May 2019–Jun. 2020.
+* President, University of Rochester AS&E Graduate Student Association, May 2019–May 2020.
 
 * Edited a 173-page report for the University of Rochester Office of the President, proposing a multi-stage project to conduct sustained outreach to Native American nations. Jan.–July 2019. 
 
@@ -68,4 +68,4 @@
 
 * Volunteer, Philadelphia for Bernie Sanders, Aug. 2015–Apr. 2016. 
 
-* Community Organizer, Obama for America, Hudson Valley, N.Y., Summer 2011.
+* Summer Community Organizer, Obama for America, Hudson Valley, N.Y., Summer 2011.
