@@ -24,7 +24,7 @@
 
 * 2019 Dr. Bruce F. Pauley Research Fellowship, University of Rochester Dept. of History ($1,050): “The Dr. Bruce F. Pauley Research Fellowship is to support graduate student research travel, with preference for students pursuing archival research in Europe.”
 
-* 2019 Center for the Integration of Research, Teaching and Learning (CIRTL) Teaching-as-Research Fellowship, directed by the University of Rochester Center for Excellence in Teaching and Learning ($1,000 stipend). 
+* 2019 Center for the Integration of Research, Teaching and Learning (CIRTL) Teaching-as-Research Fellowship, directed by the University of Rochester Center for Excellence in Teaching and Learning ($1,000 stipend). Research project co-authored with Maria Cecilia Barone: “Student Perceptions of Transferable Skills and Content Knowledge in Project-Based History Courses.” 
 
 * 2019 Nominee, “Gwennie” Student Leader Award from the University of Rochester Gwen M. Greene Center for Career Education and Connections.
 
