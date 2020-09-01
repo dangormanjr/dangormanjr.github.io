@@ -7,7 +7,7 @@ Hello! My name is Daniel Gorman Jr. (Dan to friends), and I am a historian and h
 
 Currently I am a history Ph.D. candidate and a 2019–21 Andrew W. Mellon Digital Humanities Fellow at the University of Rochester. Previously I received an M.A. in history from Villanova University, and a B.A. in history and religion from the University of Rochester. I am a member of Phi Beta Kappa and a 2013 alumnus of the Beinecke Scholarship. 
 
-## Current Interests and Projects
+## Current Projects
 
 - Ph.D. Dissertation: "Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption." Advisor: Joan Shelley Rubin, Rochester Dept. of History. This dissertation focuses on the expulsion of a Spiritualist, Frederick Willis, from Harvard Divinity School in 1857, the ensuing public debate between Spiritualists and skeptics, and the connections between Spiritualism and broader religious currents of the nineteenth century.
 
