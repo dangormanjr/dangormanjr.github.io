@@ -8,6 +8,8 @@ I have experience teaching U.S. cultural and religious history, as well as topic
 
 ## Continuing Education ##
 
+* Instructor, four-part course, “Cults, Chakras, and Crunchy Granola: New Religious Movements in America, from the 1800s to Present,” The Highlands at Pittsford (Senior Living Community), Pittsford, N.Y., June 2–23, 2020. Conducted via Zoom because of COVID-19.
+
 * Instructor, two-part course, “Consumerism and Capitalism,” The Highlands at Pittsford (Senior Living Community), Pittsford, N.Y., May 6–17, 2019.
 
 ## Teaching Assistantships ##
