@@ -12,9 +12,13 @@
 
 ## Academic Journalism ##
 
+* March 2020 episode of *Discourse*, a spinoff podcast of *The Religious Studies Project*, with Theo Wildcroft and Vivian Asimos. Open access. [https://www.religiousstudiesproject.com/podcast/discourse-march-2020-with-theo-wildcroft-dan-gorman-vivian-asimos/](https://www.religiousstudiesproject.com/podcast/discourse-march-2020-with-theo-wildcroft-dan-gorman-vivian-asimos/).
+
+* July 2019 episode of *Discourse*, a spinoff podcast of *The Religious Studies Project*, with David Robertson and Suzanne Newcomb. Subscription access only. [https://www.religiousstudiesproject.com/2019/07/22/discourse-9-july-2019/](https://www.religiousstudiesproject.com/2019/07/22/discourse-9-july-2019/). 
+
 *	“The Center of the Mormon World: The Hill Cumorah Pageant.” *Sacred Matters*, August 30, 2017. [https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/](https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/).
 
-*	Podcast Interviews for The Religious Studies Project, May 2017–Present. [http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/](http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/).
+*	Podcast Interviews for *The Religious Studies Project*, May 2017–Present. [http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/](http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/).
 
 ## Additional Publications ##
 * Contributor to the 2019–20 edition of *The American Yawp: A Massively Collaborative Open U.S. History Textbook*. [http://www.americanyawp.com/text/contributors/](http://www.americanyawp.com/text/contributors/).
