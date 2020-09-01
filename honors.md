@@ -18,6 +18,8 @@
 * 2013 Beinecke Scholarship from the Sperry Fund ($34,000): “The program seeks to encourage and enable highly motivated students to pursue opportunities available to them and to be courageous in the selection of a graduate course of study in the arts, humanities and social sciences.”
 
 ## Internal ##
+* 2020	Glyndon VanDeusen Award, University of Rochester Dept. of History: “To support travel and dissertation research for a fourth-year history graduate student.”
+
 * 2019 David Bruce Parker Memorial Prize, University of Rochester Dept. of History: “To the graduate student who best represents the dedication and courage which characterized David’s participation in the graduate program.”
 
 * 2019 Dr. Bruce F. Pauley Research Fellowship, University of Rochester Dept. of History ($1,050): “The Dr. Bruce F. Pauley Research Fellowship is to support graduate student research travel, with preference for students pursuing archival research in Europe.”
