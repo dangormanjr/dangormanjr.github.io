@@ -1,7 +1,7 @@
 # Conferences #
 
 ## Conference Papers and Presentations ##
-* “Digitizing Rochester’s Religions: Piloting a Community–University Partnership in the Digital Humanities.” Connecticut Digital Humanities (CTDH) 2020 Conference, Trinity College, Feb. 29, 2020.
+* “Digitizing Rochester’s Religions: Piloting a Community–University Partnership in the Digital Humanities.” DHSI 2020 Virtual Conference & Colloquium, University of Victoria, June 2, 2020. Also: Connecticut Digital Humanities (CTDH) 2020 Conference, Trinity College, Feb. 29, 2020. 
 
 * Co-author with Andreína Soto Segura. “Writing History Among the Tombstones: Notes from Har Hasetim.” “Making History Public(s): Presenting the Collective,” University of Michigan 2019 Graduate Student Conference in U.S. History, May 10–11, 2019. 
 
