@@ -2,7 +2,7 @@
 
 ## Conference Papers and Presentations ##
 * “Digitizing Rochester’s Religions: Piloting a Community–University Partnership in the Digital Humanities.” DHSI 2020 Virtual Conference & Colloquium, University of Victoria, Jun. 3, 2020. Also: Connecticut Digital Humanities (CTDH) 2020 Conference, Trinity College, Feb. 29, 2020. Abstract accepted to Alliance of Digital Humanities Organizations Digital Humanities 2020 conference, “Carrefours/Intersections,” Ottawa, Canada, July 22–24, 2020, but the conference was canceled because of COVID-19. 
-   1. Abstract: [https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html](https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html).
+   * Abstract: [https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html](https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html).
 
 * Co-author with Andreína Soto Segura. “Writing History Among the Tombstones: Notes from Har Hasetim.” “Making History Public(s): Presenting the Collective,” University of Michigan 2019 Graduate Student Conference in U.S. History, May 10–11, 2019. 
 
