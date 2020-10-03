@@ -41,27 +41,25 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 *	*The Post Family Papers Project*: Conversations Among 19th-Century Revolutionaries – Student and Faculty Panel Discussion at the Launch Event. Panelist. Hawkins-Carlson Room, University of Rochester Libraries, September 13, 2012. 
 
-## Libary Exhibits ##
+## Contributions to public exhibits at the University of Rochester Libraries ##
 
-* Featured undergraduate researcher and essay contributor, *Nurturing Inquiry: Exploring Special Collections*. Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, October 7, 2013 – February 28, 2014.
+* Essay author, “The George Breck & Gilbert Reynolds Project: An Eyewitness Account of the Battle of Gettysburg.” Edited by Lori Birrell. In *Undergraduate Student Projects*. Dept. of Rare Books, Special Collections, & Preservation, 2014. [http://www.lib.rochester.edu/index.cfm?PAGE=4906](http://www.lib.rochester.edu/index.cfm?PAGE=4906).
 
-*	Poster author, “Mr. Moyers Goes To Myth Land: The Power of Myth Revisited.” In *Student Research Posters* (Exhibit). Gleason Library, University of Rochester, June 7 – September 16, 2013. [https://www.library.rochester.edu/blog/Posters-on-display](https://www.library.rochester.edu/blog/Posters-on-display). 
+* Featured undergraduate researcher and essay contributor, *Nurturing Inquiry: Exploring Special Collections*. Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, Oct. 7, 2013–Feb. 28, 2014. [https://rbscp.lib.rochester.edu/1463](https://rbscp.lib.rochester.edu/1463).
 
-*	Featured photographer and essay contributor, *Travel Stories: 19th Century – Present*. Reference Dept. and Dept. of Rare Books, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, April 26 – December 27, 2013. [http://www.library.rochester.edu/node/33875](http://www.library.rochester.edu/node/33875). 
+* Poster author, “Mr. Moyers Goes To Myth Land: The Power of Myth Revisited.” In *Student Research Posters* (Exhibit). Gleason Library, Jun. 7–Sept. 16, 2013. [https://web.archive.org/web/20161118065501/https://www.library.rochester.edu/blog/Posters-on-display](https://web.archive.org/web/20161118065501/https://www.library.rochester.edu/blog/Posters-on-display).
 
-*	Essay contributor, *A Citizen’s Right to Vote: The United States vs. Susan B. Anthony*. Friedlander Lobby, Rush Rhees Library, University of Rochester, February 4 – May 20, 2013. [http://www.library.rochester.edu/node/33709](http://www.library.rochester.edu/node/33709).
+* Featured photographer and essay contributor, *Travel Stories: 19th Century – Present*. Reference Dept., Rush Rhees Library, and Dept. of Rare Books, Special Collections, & Preservation, Apr. 26–Dec. 27, 2013. [https://web.archive.org/web/20161118044149/https://www.library.rochester.edu/node/33875](https://web.archive.org/web/20161118044149/https://www.library.rochester.edu/node/33875).
 
-*	Essay contributor, *The Plutzik Series: Fifty Years of Poetry, Fiction, and Conversation*. Dept. of Rare Book, Special Collections, & Preservation, Rush Rhees Library, University of Rochester, September 18, 2012 – January 11, 2013. [http://www.library.rochester.edu/node/33525](http://www.library.rochester.edu/node/33525).
+* Essay contributor, *A Citizen’s Right to Vote: The United States vs. Susan B. Anthony*. Friedlander Lobby, Rush Rhees Library, Feb. 4–May 20, 2013. [https://web.archive.org/web/20161118061404/https://www.library.rochester.edu/node/33709](https://web.archive.org/web/20161118061404/https://www.library.rochester.edu/node/33709).
 
-## Volunteer Experience ##
-
-* Transcription Volunteer, Post Family Papers Project, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation, October 2013 and February 2014.
+* Essay contributor, *The Plutzik Series: Fifty Years of Poetry, Fiction, and Conversation*. Dept. of Rare Book, Special Collections, & Preservation, Sept. 18, 2012–Jan. 11, 2013. Dead link: [http://www.library.rochester.edu/node/33525](http://www.library.rochester.edu/node/33525). More information at [https://rbscp.lib.rochester.edu/1463](https://rbscp.lib.rochester.edu/1463).
 
 ## Undergraduate Leadership ##
 
 * Creative Director for Spring 2014 Concert, University of Rochester No Jackets Required Music Performance Group, December 2013–February 2014.
 
-* Senior Orientation Volunteer, University of Rochester Freshman Orientation: Senior Orientation Volunteer, August–September 2013. Also: Orientation Volunteer, August–September 2011 and 2012.
+* Senior Orientation Volunteer, University of Rochester Freshman Orientation, August–September 2013. Also: Orientation Volunteer, August–September 2011 and 2012.
 
 * Vice President, University of Rochester Students’ Association for Interfaith Cooperation, April 2013–May 2014.
 
