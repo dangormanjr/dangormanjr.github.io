@@ -4,6 +4,7 @@
 * 2020 University of Victoria Digital Humanities Summer Institute Tuition Scholarship. 
 
 * 2019–21 Andrew W. Mellon Digital Humanities Fellowship ($54,000 total). 
+  * [http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/](http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/). 
 
 * 2018–20 Member of the HASTAC Scholars Program. 
 
