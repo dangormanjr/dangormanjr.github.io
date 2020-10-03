@@ -74,4 +74,4 @@ Har Hasetim Project. Principal Investigator: Craig Bailey, Villanova University 
 
 *	Transcribed letters from the Post Family Papers as part of BA student coursework in RELC 239 (Fall 2011), HIST 360 (Oct. 2013), and HIST 175 (Feb. 2014).
 
-   * Annotated “Mills, Charles D.B. Letter to Amy Kirby Post [Jun. 22, 1859],” RBSCP Exhibits, [https://rbscpexhibits.lib.rochester.edu/items/show/3519](https://rbscpexhibits.lib.rochester.edu/items/show/3519).
+* Annotated “Mills, Charles D.B. Letter to Amy Kirby Post [Jun. 22, 1859],” RBSCP Exhibits, [https://rbscpexhibits.lib.rochester.edu/items/show/3519](https://rbscpexhibits.lib.rochester.edu/items/show/3519).
