@@ -67,6 +67,26 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * Steering Committee, U.R. Protestant Chapel Community, April 2011–April 2012. 
 
+## Media Appearances ##
+
+* Producer and Host, *Tangents*. The Sting, WRUR’s Online Radio Community, Spring 2014.
+
+* Interviewed in: Kotlarz, Amy. “University of Rochester Students Witness History.” *Catholic Courier* (Rochester, N.Y.), Apr. 5, 2013. [https://www.catholiccourier.com/articles/university-of-rochester-students-witness-history](https://www.catholiccourier.com/articles/university-of-rochester-students-witness-history). 
+
+* Interviewed in: Lopes, Melissa Greco. “Students in Rome Experience History in the Making.” *The Buzz* (University of Rochester News Service), Mar. 14, 2013. [https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/](https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/).
+
+* *The Daily Pulp*: Contributing Writer, Jan. 2013 – Feb. 2015; Associate Editor and Content Director, Oct. 2014–Feb. 2015. [https://web.archive.org/web/20150430141527/http://the-daily-pulp.com/author/dgorman/](https://web.archive.org/web/20150430141527/http://the-daily-pulp.com/author/dgorman/).
+
+* *USA Today College*: Contributing Writer, January 11, 2013. [https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/](https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/).
+
+Interviewed in: Lee, Traci G. “Young voters were the key to Obama’s swing state wins.” *Melissa Harris-Perry Blog* (MSNBC), Nov. 9, 2012. [http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/](http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/).
+
+* Interviewed in *Perspectives with Curt Smith*, Mar. 24, 2012. WXXI Rochester.
+
+*	*NextGen Journal*: “Voices” Contributor, October 2011 – November 2012. [https://web.archive.org/web/20121215040522/http://www.nextgenjournal.com/author/dan-gorman/](https://web.archive.org/web/20121215040522/http://www.nextgenjournal.com/author/dan-gorman/).
+
+*	University of Rochester *Campus Times*: Senior Staff Writer, September 2010 – May 2014; Copy Editor, December 2010 – May 2011. [http://www.campustimes.org/author/dgormanj/](http://www.campustimes.org/author/dgormanj/).
+
 ## Employment ##
 
 * Archival Research Assistant for Dr. Margarita S. Guillory, University of Rochester, Dept. of Religion & Classics, May–July 2013.
