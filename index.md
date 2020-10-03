@@ -5,7 +5,7 @@ excerpt: "About Me..."
 
 Hello! My name is Daniel Gorman Jr. (Dan to friends), and I am a historian and history teacher. I specialize in nineteenth- and twentieth-century U.S. history, focusing on American religions, culture, and politics. This professional website provides links to my publications and other projects. 
 
-Currently I am a history Ph.D. candidate and a 2019–21 Andrew W. Mellon Digital Humanities Fellow at the University of Rochester. Previously I received an M.A. in history from Villanova University, and a B.A. in history and religion from the University of Rochester. I am a member of Phi Beta Kappa and a 2013 alumnus of the Beinecke Scholarship. 
+Currently I am a history Ph.D. candidate and a 2019–21 Andrew W. Mellon Digital Humanities Fellow at the University of Rochester. I received an M.A. in history from Rochester in 2017. Previously I received an M.A. in history from Villanova University in 2016, and a B.A. in history and religion from the University of Rochester in 2014. I am a member of Phi Beta Kappa and a 2013 alumnus of the Beinecke Scholarship. 
 
 ## Current Projects and Interests
 
