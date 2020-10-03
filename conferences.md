@@ -21,7 +21,7 @@
 
 * “Toward the Evening Star: The Rochester Origins of the Latter-day Saints.” 11th Annual Graduate History Symposium: “Instability & Insecurity,” University of Toronto, Toronto, ON, Canada, May 7–8, 2015. Also: 20th Annual Barnes Club Graduate Student History Conference, Temple University, Philadelphia, Pennsylvania, March 28, 2015.
 
-## Conference and Seminar Planning ##
+## Events Organized ##
 * “Digital Spaces, Physical Places: A Digital Humanities Symposium.” Co-organizer with Erin Francisco, Madeline Ullrich, and Alexander Zawacki. Biennial symposium for the Andrew W. Mellon Graduate Program in the Digital Humanities, University of Rochester. Conducted via Zoom because of the COVID-19 pandemic, May 1, 2020. [http://dhfellows.digitalscholar.rochester.edu/2020-dh-symposium/digital-spaces-2020/](http://dhfellows.digitalscholar.rochester.edu/2020-dh-symposium/digital-spaces-2020/).
 
 * “Mellon Digital Humanities Lunches,” 2019–20 academic year. Co-organizer with Erin Francisco, Madeline Ullrich, and Alexander Zawacki. Andrew W. Mellon Graduate Program in the Digital Humanities, University of Rochester Humanities Center. [http://dhfellows.digitalscholar.rochester.edu/category/dh-lunches/](http://dhfellows.digitalscholar.rochester.edu/category/dh-lunches/).
