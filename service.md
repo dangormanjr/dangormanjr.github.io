@@ -76,3 +76,6 @@
 * Volunteer, Philadelphia for Bernie Sanders, Aug. 2015–Apr. 2016. 
 
 * Summer Community Organizer, Obama for America, Hudson Valley, N.Y., Summer 2011.
+
+## Miscellaneous Employment ##
+* Recruitment Assistant, AS&E Graduate Education and Postdoctoral Affairs Office, University of Rochester, Mar.–Apr. 2020.
