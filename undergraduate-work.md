@@ -29,7 +29,7 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 *	“No Longer Invisible: Religion in University Education.” Panelist. Interfaith Chapel, Meliora Weekend 2013, University of Rochester, October 12, 2013.
 
-*	“Research: Get Involved, Get Ahead” – The First Phi Kappa Tau/Journal of Undergraduate Research Symposium. Panelist. Gowen Room, Wilson Commons, University of Rochester, September 12, 2013. 
+*	“Research: Get Involved, Get Ahead” — The First Phi Kappa Tau/Journal of Undergraduate Research Symposium. Panelist. Gowen Room, Wilson Commons, University of Rochester, September 12, 2013. 
 
 *	“Research Opportunities.” Panelist. Freshman Orientation, University of Rochester, August 28, 2013. Also: During two previous Freshman Orientations (August 24, 2012 and August 25, 2011).
 
@@ -73,6 +73,6 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * Archival Research Assistant for Dr. Margarita S. Guillory, University of Rochester, Dept. of Religion & Classics, May–July 2013.
 
-* HOUR Program Researcher for Dr. Theodore Brown (working on his *Ringworm, Irradiation, and History* project), University of Rochester, Dept. of History, February–May 2013. 
+* HOUR Program Researcher for Dr. Theodore Brown, University of Rochester, Dept. of History, February–May 2013: I produced an annotated bibliography of primary and secondary sources for Theodore Brown’s Ringworm, Irradiation, and History project.
 
 * Freshman Fellow, University of Rochester Residential Life, August 2012–May 2013: I lived in a freshman dormitory, organizing programs about academics, leadership, and volunteer service throughout the school year.
