@@ -15,3 +15,5 @@ This page lists supplementary training that I have completed outside of my acade
 * April 7, 2019: "Graduate Students Workshop: Essential Professional Development Skills for Graduate School and Early Career." Facilitators: Drs. Sara Georgini, Jerry Gonzalez, Carl Suddler, and Kate Duttro. Funded by the Andrew W. Mellon Foundation. Organization of American Historians Annual Meeting, Philadelphia, PA, April 7, 2019.
 
 * Fall 2014: Certificate of Completion, Digital Humanities Workshop Series, Falvey Memorial Library, Villanova University.
+
+* Certificates of Course Completion, United States Institute of Peace: Interfaith Conflict Resolution (awarded Jun. 24, 2012) and Conflict Analysis (awarded Jun. 25, 2012). 
