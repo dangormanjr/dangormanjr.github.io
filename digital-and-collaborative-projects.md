@@ -20,7 +20,7 @@ Fall 2020 production of *The Government Inspector*, University of Rochester Inte
 
 * Edited all website content. Trained in WordPress, Omeka, ArcGIS, web hosting, archival scanning, file management and compression, and digitization of analog A/V media. 
 
-Lewis Henry Morgan at 200: A Critical Appreciation. Principal Investigator: Robert Foster, University of Rochester Dept. of Anthropology. 
+*Lewis Henry Morgan at 200: A Critical Appreciation*. Principal Investigator: Robert Foster, University of Rochester Dept. of Anthropology. 
 
 * PhD student in HIST 488, “Lewis Henry Morgan Research Colloquium,” Fall 2017, producing public history materials for the bicentennial of Morgan’s birth.
 
