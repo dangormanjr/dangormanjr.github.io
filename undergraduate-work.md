@@ -79,7 +79,7 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * *USA Today College*: Contributing Writer, January 11, 2013. [https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/](https://web.archive.org/web/20150926025454/http://college.usatoday.com/2013/01/11/read-the-elephant-the-journey-of-reading-for-fun/).
 
-Interviewed in: Lee, Traci G. “Young voters were the key to Obama’s swing state wins.” *Melissa Harris-Perry Blog* (MSNBC), Nov. 9, 2012. [http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/](http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/).
+* Interviewed in: Lee, Traci G. “Young voters were the key to Obama’s swing state wins.” *Melissa Harris-Perry Blog* (MSNBC), Nov. 9, 2012. [http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/](http://tv.msnbc.com/2012/11/09/young-voters-were-the-key-to-obamas-swing-state-wins/).
 
 * Interviewed in *Perspectives with Curt Smith*, Mar. 24, 2012. WXXI Rochester.
 
