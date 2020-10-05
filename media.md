@@ -8,7 +8,7 @@ This page provides an index of media appearances and contributions.
 * Interviewed in “Just One Story: Joseph Campbell and ‘The Hero’s Journey.’” Produced by Matthew Lazin-Ryder. *Ideas with Nahlah Ayed*. Canadian Broadcasting Corporation, September 3, 2019. [https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649](https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649).
 
 *	Interviewed in the Sept. 11, 2016, episode of *Schoolcast*, KRO–NCRV Radioschool (Netherlands). [https://soundcloud.com/suusboschloo/20160911-schoolcast-over-9-11](https://soundcloud.com/suusboschloo/20160911-schoolcast-over-9-11). 
-  * Original link (broken as of 2020): [https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016](https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016).
+   * Original link (broken as of 2020): [https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016](https://soundcloud.com/kroncrvradioschool/schoolcast-11-september-2016-uur-1?in=kroncrvradioschool/sets/schoolcast-11-september-2016).
 
 ## Print and Electronic Periodical Appearances ##
 *	Featured in the June 28, 2017, *Chronicle of Higher Education Daily Briefing*.
