@@ -52,7 +52,7 @@ Har Hasetim Project. Principal Investigator: Craig Bailey, Villanova University 
 
 *Remembering World War I*. Principal Investigator: Deborah Boyer, Azavea and Villanova University Dept. of History. [https://rememberingwwi.villanova.edu/](https://rememberingwwi.villanova.edu/). 
 
-*	MA student in HIS 8900, Topics in Digital History, Fall 2015. Collaboratively produced a website about the history of World War I, focusing on Philadelphia-area participants in the conflict. Trained in digital history theory and methodology, digital scanning, WordPress, and agile project management. 
+*	MA student in HIS 8900, "Topics in Digital History," Fall 2015. Collaboratively produced a website about the history of World War I, focusing on Philadelphia-area participants in the conflict. Trained in digital history theory and methodology, digital scanning, WordPress, and agile project management. 
 
 * Wrote and designed two digital exhibits for the website, published by Villanova University Library: 
 
@@ -62,7 +62,7 @@ Har Hasetim Project. Principal Investigator: Craig Bailey, Villanova University 
 
 *Seward Family Digital Archive*. Principal Investigator: Thomas Slaughter, University of Rochester Dept. of History. [https://sewardproject.org/SewardTeam](https://sewardproject.org/SewardTeam).
 
-* BA student in HIST 279, The Seward Family in Peace, Spring 2014. Produced materials for the Seward Family website.
+* BA student in HIST 279, "The Seward Family in Peace," Spring 2014. Produced materials for the Seward Family website.
 
 * Transcribed and annotated letters from the Seward Papers; formatted the letters using TEI guidelines in Oxygen XML Editor; conducted genealogical research; wrote an annotated finding aid about a subset of the Seward Papers.  
 
