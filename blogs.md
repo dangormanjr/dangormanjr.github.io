@@ -13,7 +13,3 @@
 *	“Lindy Hop For All: Interviews and Oral History of the Frankie Manning Foundation.” The Frankie Manning Foundation, September 26, 2015. [http://www.frankiemanningfoundation.org/lindy-hop-for-all-interviews-and-oral-history-of-the-frankie-manning-foundation/](http://www.frankiemanningfoundation.org/lindy-hop-for-all-interviews-and-oral-history-of-the-frankie-manning-foundation/).
 
 *	Blog posts for Villanova University’s *Historically Speaking* website, 2015–16. [https://vugradhistory.wordpress.com/author/dgormanj/](https://vugradhistory.wordpress.com/author/dgormanj/).
-
-*	Blog entry for The Seward Family Papers Project, Spring 2014. [https://web.archive.org/web/20181128043332/https://sewardproject.wordpress.com/](https://web.archive.org/web/20181128043332/https://sewardproject.wordpress.com/).
-
-* “The Common Man and the Civil War: A Special Historical Feature.” Ed. Alex Urban. *The Daily Pulp*, January 21, 2013. [https://web.archive.org/web/20130322052924/http://the-daily-pulp.com:80/entertainment/](https://web.archive.org/web/20130322052924/http://the-daily-pulp.com:80/entertainment/).
