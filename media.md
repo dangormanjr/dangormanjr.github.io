@@ -14,8 +14,6 @@ This page provides an index of media appearances and contributions.
 
 *	Interviewed in: Lynch, Emily Hessney. “Dan Gorman, On a Tuesday at Orange Glory.” *I Heart Roc*, Interview No. 76, March 22, 2017. [http://www.iheartroc.com/work/dan-gorman/](http://www.iheartroc.com/work/dan-gorman/).
 
-*	“Letter to the Editor: Sometimes a Great Notion…” University of Rochester *Campus Times*, November 21, 2013, page 5. [http://www.campustimes.org/wp-content/uploads/2016/02/2013-11-21_22.pdf](http://www.campustimes.org/wp-content/uploads/2016/02/2013-11-21_22.pdf).
-
 ## Theatre Credits ##
 *	Featured vocalist, *Pump It Up: A 40th Anniversary Celebration of New Wave*, February 17, 2018 concert, University of Rochester Institute for Popular Music.
 
