@@ -71,6 +71,8 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * Producer and Host, *Tangents*. The Sting, WRUR’s Online Radio Community, Spring 2014.
 
+* “Letter to the Editor: Sometimes a Great Notion…” University of Rochester *Campus Times*, Nov. 21, 2013, page 5. [http://www.campustimes.org/wp-content/uploads/2016/02/2013-11-21_22.pdf](http://www.campustimes.org/wp-content/uploads/2016/02/2013-11-21_22.pdf).
+
 * Interviewed in: Kotlarz, Amy. “University of Rochester Students Witness History.” *Catholic Courier* (Rochester, N.Y.), Apr. 5, 2013. [https://www.catholiccourier.com/articles/university-of-rochester-students-witness-history](https://www.catholiccourier.com/articles/university-of-rochester-students-witness-history). 
 
 * Interviewed in: Lopes, Melissa Greco. “Students in Rome Experience History in the Making.” *The Buzz* (University of Rochester News Service), Mar. 14, 2013. [https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/](https://web.archive.org/web/20130428091023/http://www.rochester.edu/thebuzz/2013/03/students-in-rome-experience-history-in-the-making/).
@@ -89,8 +91,8 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 ## Employment ##
 
-* Archival Research Assistant for Dr. Margarita S. Guillory, University of Rochester, Dept. of Religion & Classics, May–July 2013.
+* Archival Research Assistant for Prof. Margarita S. Guillory, University of Rochester Dept. of Religion & Classics, May–July 2013. 
 
-* HOUR Program Researcher for Dr. Theodore Brown, University of Rochester, Dept. of History, February–May 2013: I produced an annotated bibliography of primary and secondary sources for Theodore Brown’s Ringworm, Irradiation, and History project.
+* HOUR Program Researcher, University of Rochester Dept. of History, February–May 2013: I produced an annotated bibliography of primary and secondary sources for Prof. Theodore Brown’s *Ringworm, Irradiation, and History* project.
 
 * Freshman Fellow, University of Rochester Residential Life, August 2012–May 2013: I lived in a freshman dormitory, organizing programs about academics, leadership, and volunteer service throughout the school year.
