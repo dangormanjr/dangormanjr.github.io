@@ -24,6 +24,12 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * “Giving Us Courage: The Political Rhetoric of Franklin Delano Roosevelt.” 26th National Conference on Undergraduate Research, Weber State University, Ogden, Utah, March 29, 2012. [https://www.weber.edu/wsuimages/ncur2012/ncur-032712.pdf](https://www.weber.edu/wsuimages/ncur2012/ncur-032712.pdf). Also: Deans’ Award, Undergraduate Research Exposition, University of Rochester, April 15, 2011. 
 
+## Blogs ##
+
+*	Blog entry for The Seward Family Papers Project, Spring 2014. [https://web.archive.org/web/20181128043332/https://sewardproject.wordpress.com/](https://web.archive.org/web/20181128043332/https://sewardproject.wordpress.com/).
+
+* “The Common Man and the Civil War: A Special Historical Feature.” Ed. Alex Urban. *The Daily Pulp*, January 21, 2013. [https://web.archive.org/web/20130322052924/http://the-daily-pulp.com:80/entertainment/](https://web.archive.org/web/20130322052924/http://the-daily-pulp.com:80/entertainment/).
+
 ## Presentations ##
 *	“How My Major in the Humanities Has Influenced My Life.” Guest speaker. Rettner Hall, University of Rochester, October 25, 2013.
 
