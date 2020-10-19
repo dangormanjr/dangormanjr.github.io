@@ -1,6 +1,6 @@
 # Blogs
 
-*	Co-author with Ryan Reft (interviewer). “Digital Summer School: Digitizing Rochester’s Religions.” *The Metropole: The Official Blog of the Urban History Association, Aug. 25, 2020*. [https://themetropole.blog/2020/08/25/digital-summer-school-digitizing-rochesters-religions/](https://themetropole.blog/2020/08/25/digital-summer-school-digitizing-rochesters-religions/).
+*	Co-author with Ryan Reft (interviewer). “Digital Summer School: Digitizing Rochester’s Religions.” *The Metropole: The Official Blog of the Urban History Association*, Aug. 25, 2020. [https://themetropole.blog/2020/08/25/digital-summer-school-digitizing-rochesters-religions/](https://themetropole.blog/2020/08/25/digital-summer-school-digitizing-rochesters-religions/).
 
 * "Waves of Regret and Waves of Joy: Searching for the End of the World in the Blake Archive." *Hell’s Printing Press: The Blog of the Blake Archive and Blake Quarterly*, Apr. 10, 2020. [https://blog.blakearchive.org/2020/04/10/searching-end-of-the-world/](https://blog.blakearchive.org/2020/04/10/searching-end-of-the-world/).
 
