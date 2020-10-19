@@ -6,7 +6,7 @@
 * 2019–21 Andrew W. Mellon Digital Humanities Fellowship ($54,000 total). 
   * [http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/](http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/). 
 
-* 2018–20 Member of the HASTAC Scholars Program. 
+* 2018–20 Member of the HASTAC Scholars Program. [https://www.hastac.org/u/dgormanj](https://www.hastac.org/u/dgormanj).
 
 * 2018 Parliament of the World’s Religions Student Scholarship.
 
