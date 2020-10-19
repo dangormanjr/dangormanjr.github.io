@@ -10,7 +10,9 @@
 
 * Review of *The Ordeal of the Reunion: A New History of Reconstruction* by Mark Wahlgren Summers. *Essays in History* 57 (2015). [http://www.essaysinhistory.com/the-ordeal-of-the-reunion-a-new-history-of-reconstruction/](http://www.essaysinhistory.com/the-ordeal-of-the-reunion-a-new-history-of-reconstruction/).
 
-## Textbooks ##
+## Textbooks and Curricula ##
+
+* “California Joe’s First Trail (1884) Spotlight.” Nickels and Dimes: From the Collections of Johannsen and LeBlanc (Northern Illinois University), Oct. 2020. [https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe](https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe).
 
 * Contributor to the 2019–20 edition of *The American Yawp: A Massively Collaborative Open U.S. History Textbook*. [http://www.americanyawp.com/text/contributors/](http://www.americanyawp.com/text/contributors/).
 
