@@ -8,6 +8,8 @@ This page lists supplementary training that I have completed outside of my acade
 * May 2019: Responsible Conduct of Research (RCR) for UR Graduate Students and Postdoctoral Appointees, Collaborative Institutional Training Initiative (CITI) Program, Record ID 30159649. No expiration date. [http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649](http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649).
 
 ## Professional Development
+*	Certificate of Completion, “Foundations of Genealogy I,” 16-hour course, Nov.–Dec. 2020. Instructor: Sydney F. Cruice Dixon. Historical Society of Pennsylvania. 
+
 * April 24, 2020:	Certificate of Completion, “Getting Started With Oral History,” Feb. 5–12, 2020. Instructor: Stephen M. Sloan. Baylor University Institute for Oral History. 
 
 * March 6, 2020: Certificate of Completion, Spring 2020 Programming for Humanists Course, Part I — “Digital Editions, Start to Finish,” January 17–March 6, 2020. Instructors: Drs. Laura Mandell and Diane K. Jakacki. Center of Digital Humanities Research, Texas A&M University.
