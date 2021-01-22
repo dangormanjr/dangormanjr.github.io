@@ -73,7 +73,7 @@ This page provides an archive of the academic work I did as an undergraduate at 
 
 * Steering Committee, U.R. Protestant Chapel Community, April 2011–April 2012. 
 
-## Media Appearances ##
+## Media Appearances, including Journalism ##
 
 * Producer and Host, *Tangents*. The Sting, WRUR’s Online Radio Community, Spring 2014.
 
