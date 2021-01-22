@@ -5,8 +5,10 @@ I am available to do:
 - Contract lecturing, 
 - Copy editing and manuscript editing, 
 - Policy analysis, 
-- Digital humanities consulting, 
+- Student organization and alumni relations consulting,
+- Digital humanities and public history consulting, 
 - Dramaturgy, *and* 
+- Speechwriting / ghostwriting,
 - Genealogical research. 
 
 I am not seeking a full-time position at this time, as I am still a full-time Ph.D. candidate. 
