@@ -2,7 +2,7 @@
 
 ## Reviews ##
 
-* •	Review of *Religious Humor in Evangelical Christian and Mormon Culture* by Elisha McIntyre. *Religious Studies Review* 46, No. 4 (Dec. 2020): 550. [https://doi.org/10.1111/rsr.14960](https://doi.org/10.1111/rsr.14960). 
+* Review of *Religious Humor in Evangelical Christian and Mormon Culture* by Elisha McIntyre. *Religious Studies Review* 46, No. 4 (Dec. 2020): 550. [https://doi.org/10.1111/rsr.14960](https://doi.org/10.1111/rsr.14960). 
 
 * Review of *The Myth of Disenchantment: Magic, Modernity, and the Birth of the Human Sciences* by Jason Ā. Josephson-Storm. *Bulletin of the British Association for the Study of Religions* No. 133 (Nov. 2018): 29–31. [https://basrblog.files.wordpress.com/2018/12/bulletin-133-min.pdf](https://basrblog.files.wordpress.com/2018/12/bulletin-133-min.pdf). 
 
