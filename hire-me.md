@@ -7,8 +7,8 @@ I am available to do:
 - Policy analysis, 
 - Student organization and alumni relations consulting,
 - Digital humanities and public history consulting, 
-- Dramaturgy, *and* 
-- Speechwriting / ghostwriting,
+- Dramaturgy,
+- Speechwriting, *and* 
 - Genealogical research. 
 
 I am not seeking a full-time position at this time, as I am still a full-time Ph.D. candidate. 
