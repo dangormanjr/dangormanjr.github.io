@@ -1,6 +1,6 @@
 # Undergraduate Work
 
-This page provides an archive of the academic work I did as an undergraduate at the University of Rochester. 
+This page provides an archive of academic and cocurricular work I did as an undergraduate at the University of Rochester. 
 
 ## Peer-Reviewed Undergraduate Papers ##
 
