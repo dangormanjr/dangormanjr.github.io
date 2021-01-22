@@ -20,6 +20,8 @@
 * Volunteer (transcription, annotation, and scanning) for the Digital Library Initiative, Villanova University Special Collections, Aug. 2014–Jan. 2016.
 
 ## Educational Outreach & Mentorship ##
+* Zoom Technician and Social Activities Advisor, Alabama YMCA Virtual Youth Legislature Conference, Oct. 25–Nov. 7, 2020. 
+
 * Zoom Technician and Outstanding Proposal Final Round Reviewer, 2020 YMCA Conference on National Affairs, Jun. 17–July 2, 2020. Conducted virtually because of COVID-19.
 
 * Volunteer Staff, New York State YMCA Youth and Government Conference, Mar. 14–17, 2019. 
