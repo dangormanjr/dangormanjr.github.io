@@ -2,8 +2,8 @@
 
 I am available to do: 
 - Historical research,  
-- Contract lecturing, 
-- Copy editing and manuscript editing, 
+- Lecturing, 
+- Editing, 
 - Policy analysis, 
 - Student organization and alumni relations consulting,
 - Digital humanities and public history consulting, 
