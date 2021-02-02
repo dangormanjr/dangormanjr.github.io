@@ -71,6 +71,8 @@
   * Interviewed all three finalists; submitted feedback to the Office of the President.
 
 ## Political Work ##
+* Volunteer, Joe Biden for President, Fall 2020. 
+
 * Volunteer, Mitch Gruber for Rochester City Council, Summer 2017.
 
 * Campus Organizing Fellow, Organizing for Action, Spring 2017. 
