@@ -6,7 +6,7 @@ Fall 2020 production of *The Government Inspector*, University of Rochester Inte
 
 * Reviewed streaming platforms and software with staff from the UR Digital Scholarship Lab; shared recommendations for best practices with the director; co-wrote educational materials for the cast and crew; participated in test streaming recordings (OBS Ninja).
 
-*The William Blake Archive*. Principal Investigator: Morris Eaves, University of Rochester Dept. of English. http://www.blakearchive.org/staticpage/archiveataglance?p=credits. 
+*The William Blake Archive*. Principal Investigator: Morris Eaves, University of Rochester Dept. of English. [http://www.blakearchive.org/staticpage/archiveataglance?p=credits](http://www.blakearchive.org/staticpage/archiveataglance?p=credits).
 
 * Mellon Fellowship intern (unpaid position), Sept. 2019–May 2020. 
 
