@@ -10,6 +10,8 @@ This page lists supplementary training that I have completed outside of my acade
 ## Professional Development
 *	Certificate of Completion, “Foundations of Genealogy I,” 16-hour course, Nov.–Dec. 2020. Instructor: Sydney F. Cruice Dixon. Historical Society of Pennsylvania. 
 
+*	Certificate of Achievement, “DH101: Introduction to Digital Humanities,” HarvardX (EdX), Nov. 2, 2020, [https://courses.edx.org/certificates/679d7651c9cb49ff86c1a270009b8c68](https://courses.edx.org/certificates/679d7651c9cb49ff86c1a270009b8c68).
+
 * April 24, 2020:	Certificate of Completion, “Getting Started With Oral History,” Feb. 5–12, 2020. Instructor: Stephen M. Sloan. Baylor University Institute for Oral History. 
 
 * March 6, 2020: Certificate of Completion, Spring 2020 Programming for Humanists Course, Part I — “Digital Editions, Start to Finish,” January 17–March 6, 2020. Instructors: Drs. Laura Mandell and Diane K. Jakacki. Center of Digital Humanities Research, Texas A&M University.
