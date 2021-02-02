@@ -34,9 +34,9 @@ Fall 2020 production of *The Government Inspector*, University of Rochester Inte
 
 *	Contributions to Morgan Bicentennial website:
 
-  1. “Closed Mouth, Open Mind: Lewis Henry Morgan and Religion.” Published in 2018. [http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/portfolio/closed-mouth-open-mind-lewis-henry-morgan-and-religion/](http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/portfolio/closed-mouth-open-mind-lewis-henry-morgan-and-religion/). 
+  * “Closed Mouth, Open Mind: Lewis Henry Morgan and Religion.” Published in 2018. [http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/portfolio/closed-mouth-open-mind-lewis-henry-morgan-and-religion/](http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/portfolio/closed-mouth-open-mind-lewis-henry-morgan-and-religion/). 
 
-  2. Co-curator, with Robert J. Foster, Jiangtao (Harry) Gu, M. Bove, J. Tran, E. Reik, S. Roth, and M. Zammarelli. “Caroline Parker’s Friendship with Lewis Henry Morgan.” Published in 2018. [http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/caroline-parkers-friendship-with-morgan/](http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/caroline-parkers-friendship-with-morgan/).
+  * Co-curator, with Robert J. Foster, Jiangtao (Harry) Gu, M. Bove, J. Tran, E. Reik, S. Roth, and M. Zammarelli. “Caroline Parker’s Friendship with Lewis Henry Morgan.” Published in 2018. [http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/caroline-parkers-friendship-with-morgan/](http://rbscp.digitalscholar.rochester.edu/wp/Morgan200/caroline-parkers-friendship-with-morgan/).
 
 *Virtual St. George’s*. Principal Investigator: Michael J. Jarvis, University of Rochester Dept. of History.
 
