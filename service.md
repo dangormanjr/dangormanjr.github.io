@@ -53,7 +53,8 @@
 * Member of the Student Advisory Committee for the Presidential Search, University of Rochester, Spring 2018–Jan. 2019. 
   * Attended focus groups; consulted with UR administrators and trustees; reviewed presidential position description; and co-facilitated four student town halls.
 
-*	Intimate Relations Policy Revision Committee, Commission on Women and Gender Equity in Academia, University of Rochester, Spring 2018: GSA representative. Revised university policy to restrict intimate relationships between graduate students and faculty.
+*	Intimate Relations Policy Revision Committee, Commission on Women and Gender Equity in Academia, University of Rochester, Spring 2018. 
+  * GSA representative. Revised university policy to restrict intimate relationships between graduate students and faculty.
 
 * Graduate Representative, University of Rochester Transportation Committee, Sept. 2017–Apr. 2019.
   * Part of GSA service (2017–19). Advocated for transportation services for graduate students; supervised survey of grad student transportation needs; consulted on changes to UR shuttle lines. 
