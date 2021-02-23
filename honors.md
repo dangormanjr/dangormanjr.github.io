@@ -1,7 +1,7 @@
 # Honors and Awards
 
 ## External ##
-* 2020 University of Victoria Digital Humanities Summer Institute Tuition Scholarship. 
+* 2020 University of Victoria Digital Humanities Summer Institute Tuition Scholarship. Declined because of COVID travel restrictions. 
 
 * 2019–21 Andrew W. Mellon Digital Humanities Fellowship ($54,000 total). 
   * [http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/](http://dhfellows.digitalscholar.rochester.edu/current-fellows/dan-gorman/). 
