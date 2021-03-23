@@ -14,13 +14,13 @@ Fall 2020 production of *The Government Inspector*, University of Rochester Inte
 
 *Digitizing Rochester’s Religions: A Public History Project*. Principal Investigator: Margarita S. Guillory, Boston University Dept. of Religion (formerly UR Dept. of Religion & Classics). [http://digrocreligions.org/](http://digrocreligions.org/).
 
-![Homepage for *Digitizing Rochester's Religions* (2020).](/images/DRR_Homepage_Screenshot_2020.png)
-
 * PhD student in RELC 591, “PhD Readings in Religion,” Fall 2016; graduate research assistant (paid position), Jun. 2017–Jun. 2018; website editor (unpaid position, with Mellon support), Jun. 2018–Dec. 2020. The website launched in Feb. 2020. 
 
 * Collaborated with library staff, undergraduate researchers, and community stakeholders.
 
 * Edited all website content. Trained in WordPress, Omeka, ArcGIS, web hosting, archival scanning, file management and compression, and digitization of analog A/V media. 
+
+![Homepage for *Digitizing Rochester's Religions* (2020).](/images/DRR_Homepage_Screenshot_2020.png)
 
 *Lewis Henry Morgan at 200: A Critical Appreciation*. Principal Investigator: Robert Foster, University of Rochester Dept. of Anthropology. 
 
