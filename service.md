@@ -3,7 +3,9 @@
 ## Historical Work ##
 * Conference Submission Peer Reviewer, Digital Humanities 2020: “Carrefours/Intersections,” Ottawa, Canada (Alliance of Digital Humanities Organizations), Fall 2019.
 
-* Peer Reviewer, *Past Tense Graduate Review of History* (University of Toronto), Fall 2017–Spring 2019.
+* Editorial board member, *The American Historian*, Jun. 2020–Present.
+
+* Peer Reviewer, *Past Tense Graduate Review of History* (University of Toronto), Fall 2017–Spring 2019, Spring 2021.
 
 * Tuition Scholar (Research Assistant) for Prof. Timothy McCall, Villanova University, Dept. of History, Jan.–May 2016.	
 
