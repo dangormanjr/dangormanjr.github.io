@@ -22,6 +22,8 @@
 * Volunteer (transcription, annotation, and scanning) for the Digital Library Initiative, Villanova University Special Collections, Aug. 2014–Jan. 2016.
 
 ## Educational Outreach & Mentorship ##
+* Outstanding Proposal Reviewer, YMCA Conference on National Affairs, June 2021.
+
 * Zoom Technician, Alabama YMCA Youth Judicial Program, Jan. 30, 2021.
 
 * Zoom Technician and Social Activities Advisor, Alabama YMCA Virtual Youth Legislature Conference, Oct. 25–Nov. 7, 2020. 
@@ -42,7 +44,6 @@
 * Undergraduate Admissions Alumni Interviewer, University of Rochester, Winter 2015–Winter 2019. 
 
 ## University Affairs ##
-
 * President, University of Rochester AS&E Graduate Student Association (GSA), May 2019–May 2020.
   * Supervised GSA events and schedule, in collaboration with AS&E administrators; liaison to UR Office of the President; and consulted on COVID-19 relief efforts.  
   * AS&E Representative, University of Rochester Graduate Student and Postdoctoral Fellow Advisory Council, Sept. 2019–May 2020: Consulted on university-wide grad student academic and co-curricular policies; co-authored a report on the state of grad student life for the Board of Trustees; consulted on university-wide COVID-19 relief efforts.
