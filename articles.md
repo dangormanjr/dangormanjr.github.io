@@ -20,6 +20,8 @@
 
 ## Academic Journalism ##
 
+* “Coming Back from COVID: The Grad Student Perspective.” The American Historian no. 28 (June 2021): 22–24. [https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/](https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/).
+
 *	“The Center of the Mormon World: The Hill Cumorah Pageant.” *Sacred Matters*, August 30, 2017. [https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/](https://sacredmattersmagazine.com/the-center-of-the-mormon-world-the-hill-cumorah-pageant/).
 
 *	Podcast Interviews for *The Religious Studies Project*, May 2017–Present. [http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/](http://www.religiousstudiesproject.com/persons/daniel-gorman-jr/).
