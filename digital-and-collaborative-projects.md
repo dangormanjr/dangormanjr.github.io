@@ -1,5 +1,15 @@
 # Digital and Collaborative Projects
 
+*The Frederick Douglass Project*. Principal Investigators: Jessica Lacher-Feldman and Autumn Haag, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation.
+
+* Mellon Fellowship consultant, Feb.–June 2020.
+
+* Wrote and revised a project outline in collaboration with principal investigators.
+
+* Trained in Omeka.
+
+* Wrote memos about other digital projects dedicated to Frederick Douglass, as well as other Omeka web exhibits. 
+
 Fall 2020 production of *The Government Inspector*, University of Rochester International Theatre Program. Directed by Nigel Maister. 
 
 * Mellon Fellowship consultant (unpaid position), Aug. 2020–Present. 
