@@ -2,7 +2,7 @@
 
 ## Reviews ##
 
-* Review of *John E. Fetzer and the Quest for the New Age* by Brian C. Wilson. Reading Religion, Sept. 16, 2021. [https://readingreligion.org/books/john-e-fetzer-and-quest-new-age](https://readingreligion.org/books/john-e-fetzer-and-quest-new-age).
+* Review of *John E. Fetzer and the Quest for the New Age* by Brian C. Wilson. *Reading Religion*, Sept. 16, 2021. [https://readingreligion.org/books/john-e-fetzer-and-quest-new-age](https://readingreligion.org/books/john-e-fetzer-and-quest-new-age).
 
 * Review of *Religious Humor in Evangelical Christian and Mormon Culture* by Elisha McIntyre. *Religious Studies Review* 46, No. 4 (Dec. 2020): 550. [https://doi.org/10.1111/rsr.14960](https://doi.org/10.1111/rsr.14960). 
 
