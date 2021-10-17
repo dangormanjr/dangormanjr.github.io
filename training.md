@@ -8,6 +8,10 @@ This page lists supplementary training that I have completed outside of my acade
 * May 2019: Responsible Conduct of Research (RCR) for UR Graduate Students and Postdoctoral Appointees, Collaborative Institutional Training Initiative (CITI) Program, Record ID 30159649. No expiration date. [http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649](http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649).
 
 ## Professional Development
+* Certificate of Completion, “Introduction to Metadata,” Library Juice Academy, Aug. 29, 2021, [https://certificates.libraryjuiceacademy.com/202108/daniel.gorman.jr.202108.pdf](https://certificates.libraryjuiceacademy.com/202108/daniel.gorman.jr.202108.pdf).
+
+* University of Rochester Safe Space Training Certificate, valid for 2021–24. 
+
 * Certificate of Completion, Course L120a, "Introduction to Audiovisual Archives Management," Rare Book School, July 2021. Instructors: Steve Weiss and Erica Titkemeyer, University of North Carolina at Chapel Hill.
 
 *	Certificate of Completion, “Foundations of Genealogy I,” 16-hour course, Nov.–Dec. 2020. Instructor: Sydney F. Cruice Dixon. Historical Society of Pennsylvania. 
