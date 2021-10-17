@@ -4,6 +4,8 @@ I have experience teaching U.S. cultural and religious history, as well as topic
 
 ## Instructor of Record ##
 
+* Adjunct professor, “Contested Futures: Religion and Science in the United States,” 4.0-credit semester course, University of Rochester, Fall 2021. 
+
 * Adjunct professor, “Cults, Chakras, & Crunchy Granola: New Age Religions in America,” 4.0-credit summer course, University of Rochester, July 2019.
 
 ## Continuing Education ##
