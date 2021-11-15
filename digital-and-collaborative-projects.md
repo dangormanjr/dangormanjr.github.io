@@ -22,7 +22,7 @@ Fall 2020 production of *The Government Inspector*, University of Rochester Inte
 
 * Formatted a Blake poem using Text Encoding Initiative (TEI) guidelines in Oxygen XML Editor; consulted on the website’s marginalia transcription display; reviewed digital humanities software; blogged for the project website; and participated in group proofreading sessions for the XML edition of Blake’s The French Revolution (published May 2020). 
 
-*Digitizing Rochester’s Religions: A Public History Project*. Principal Investigator: Margarita S. Guillory, Boston University Dept. of Religion (formerly UR Dept. of Religion & Classics). [http://digrocreligions.org/](http://digrocreligions.org/).
+*Digitizing Rochester’s Religions: A Public History Project*. Principal Investigator: Margarita S. Guillory, Boston University Dept. of Religion (formerly UR Dept. of Religion & Classics). [http://digrocreligions.org/](http://digrocreligions.org/). Reviewed by Jonathan D. Lawrence for *Reviews in Digital Humanities* 2, no. 11 (Nov. 15, 2021), [https://reviewsindh.pubpub.org/pub/digitizing-rochesters-religions/release/2](https://reviewsindh.pubpub.org/pub/digitizing-rochesters-religions/release/2).
 
 * PhD student in RELC 591, “PhD Readings in Religion,” Fall 2016; graduate research assistant (paid position), Jun. 2017–Jun. 2018; website editor (unpaid position, with Mellon support), Jun. 2018–Dec. 2020. The website launched in Feb. 2020. 
 
