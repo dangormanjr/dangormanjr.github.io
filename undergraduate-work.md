@@ -43,7 +43,7 @@ This page provides an archive of academic and cocurricular work I did as an unde
 
 *	“21st-Century Academic Libraries: The Power of Collaboration!” Co-presenter. The Highlands At Pittsford (Senior Living Community), Pittsford, NY, January 15, 2013.
 
-*	“Playing Fast and Slow: A Brief History of American Popular Music, 1890-1990.” Lecturer. No Jackets Required Music Performance Group’s Fall Lecture, University of Rochester, October 16, 2012. [http://www.youtube.com/watch?v=R3nI_tggvyw&feature=plcp](http://www.youtube.com/watch?v=R3nI_tggvyw&feature=plcp).
+*	“Playing Fast and Slow: A Brief History of American Popular Music, 1890-1990.” Lecturer. No Jackets Required Music Performance Group’s Fall Lecture, University of Rochester, October 16, 2012. 
 
 *	*The Post Family Papers Project*: Conversations Among 19th-Century Revolutionaries – Student and Faculty Panel Discussion at the Launch Event. Panelist. Hawkins-Carlson Room, University of Rochester Libraries, September 13, 2012. 
 
