@@ -1,9 +1,11 @@
 # Volunteer Experience and Professional Service
 
 ## Historical Work ##
-* Conference Submission Peer Reviewer, Digital Humanities 2020: “Carrefours/Intersections,” Ottawa, Canada (Alliance of Digital Humanities Organizations), Fall 2019.
+* Organization of American Historians Graduate Student Committee, Jan. 2022–Apr. 2023.
 
-* Editorial board member, *The American Historian*, Jun. 2020–Present.
+* Editorial board member, The American Historian, June 2020–Present. 
+
+* Conference Submission Peer Reviewer, Digital Humanities 2020: “Carrefours/Intersections,” Ottawa, Canada (Alliance of Digital Humanities Organizations), Fall 2019.
 
 * Peer Reviewer, *Past Tense Graduate Review of History* (University of Toronto), Fall 2017–Spring 2019, Spring 2021.
 
