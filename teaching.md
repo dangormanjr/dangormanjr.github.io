@@ -4,9 +4,13 @@ I have experience teaching U.S. cultural and religious history, as well as topic
 
 ## Instructor of Record ##
 
-* Adjunct professor, “Contested Futures: Religion and Science in the United States,” 4.0-credit semester course, University of Rochester, Fall 2021. 
+* Adjunct professor, “Digital History,” undergraduate course, RIT, Spring 2022. 
 
-* Adjunct professor, “Cults, Chakras, & Crunchy Granola: New Age Religions in America,” 4.0-credit summer course, University of Rochester, July 2019.
+* Adjunct professor, “Contested Futures: Religion and Science in the United States,” undergraduate course, University of Rochester, Fall 2021. 
+
+* Adjunct professor, “Cults, Chakras, & Crunchy Granola: New Age Religions in America,” undergraduate intensive course, University of Rochester, July 2019. 
+![image](https://user-images.githubusercontent.com/58602373/166830713-f44748c3-3922-4591-9958-d20bedc4373b.png)
+
 
 ## Continuing Education ##
 
