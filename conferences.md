@@ -1,9 +1,9 @@
 # Conferences #
 
 ## Conference Papers and Presentations ##
-* Co-author with Nigel Maister, Meaghan Moody, and Joshua Romphf. “Managing The Government Inspector: Staging a Virtual Play in a Pandemic.” DHSI 2021: Project Management in the Humanities, University of Victoria, June 9, 2021.
+*	“Closed Mouth, Open Mind: Lewis Henry Morgan and the Religion of Cognition.” “Radicalism & Reform,” 43rd Annual Conference of the Nineteenth-Century Studies Association, Rochester, NY, Mar. 18, 2022. Also: “Belief & Identity,” 12th Annual Graduate Conference of the Department of History, Syracuse University, Mar. 26, 2021. 
 
-* “Closed Mouth, Open Mind: Lewis Henry Morgan and the Religion of Cognition.” “Belief & Identity,” 12th Annual Graduate Conference of the Department of History, Syracuse University, Mar. 26, 2021.
+* Co-author with Nigel Maister, Meaghan Moody, and Joshua Romphf. “Managing The Government Inspector: Staging a Virtual Play in a Pandemic.” DHSI 2021: Project Management in the Humanities, University of Victoria, June 9, 2021.
 
 * “Digitizing Rochester’s Religions: Piloting a Community–University Partnership in the Digital Humanities.” DHSI 2020 Virtual Conference & Colloquium, University of Victoria, Jun. 3, 2020. Also: Connecticut Digital Humanities (CTDH) 2020 Conference, Trinity College, Feb. 29, 2020. Abstract accepted to Alliance of Digital Humanities Organizations Digital Humanities 2020 conference, “Carrefours/Intersections,” Ottawa, Canada, July 22–24, 2020, but the conference was canceled because of COVID-19. 
    * Abstract: [https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html](https://dh2020.adho.org/wp-content/uploads/2020/07/143_DigitizingRochestersReligionsPilotingaCommunityUniversityPartnershipintheDigitalHumanities.html).
