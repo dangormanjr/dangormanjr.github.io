@@ -2,7 +2,7 @@
 Principal Investigator, *The Hill Cumorah Legacy Project*. Rochester Institute of Technology Department of History.
 * Designed an oral history website about the LDS Church’s Hill Cumorah Pageant, as part of my teaching responsibilities for “Digital History” (January–May 2022). 
 
-*Supervised 31 students and coordinated with LDS officials in New York and Utah. 
+* Supervised 31 students and coordinated with LDS officials in New York and Utah. 
 
 *The Frederick Douglass Project*. Principal Investigators: Jessica Lacher-Feldman and Autumn Haag, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation.
 
