@@ -9,3 +9,7 @@
 *	“The Untold Stories of Mormonism Exposed: Material Culture, Dime Novels, and Mormonism in American Society.” *Concept: An Interdisciplinary Journal of Graduate Studies* 38 (2015): 18–45. [http://concept.journals.villanova.edu/article/view/1830/1734](http://concept.journals.villanova.edu/article/view/1830/1734). 
 
 *	“Revisiting Joseph Campbell’s The Power of Myth.” *Intermountain West Journal of Religious Studies* 5, No. 1, Spring 2014 (2014): 72–88. [http://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1037&context=imwjournal](http://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1037&context=imwjournal).
+
+# Peer-Reviewed Book Chapters
+
+* Co-author with Erin Francisco Opalich, Madeline Ullrich, and Alexander J. Zawacki. “A Tale of Three Disciplines: Considering the (Digital) Future of the Mid-doc Fellowship in Graduate Programs.” In *The Digital Futures of Graduate Study in the Humanities*, ed. Simon Appleford, Gabriel Hankins, and Anouk Lang. Forthcoming, University of Minnesota Press. 
