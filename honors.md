@@ -1,6 +1,8 @@
 # Honors and Awards
 
 ## External ##
+* Biosophical Institute Frederick Kettner Scholarship, 2022 ($10,000).
+
 * 2020 University of Victoria Digital Humanities Summer Institute Tuition Scholarship. Declined because of COVID travel restrictions. 
 
 * 2019–21 Andrew W. Mellon Digital Humanities Fellowship ($54,000 total). 
@@ -20,6 +22,8 @@
 * 2013 Beinecke Scholarship from the Sperry Fund ($34,000): “The program seeks to encourage and enable highly motivated students to pursue opportunities available to them and to be courageous in the selection of a graduate course of study in the arts, humanities and social sciences.”
 
 ## Internal ##
+* Dissertation completion grant, University of Rochester, Spring 2023 ($10,000 stipend).
+
 * 2020	Glyndon VanDeusen Award, University of Rochester Dept. of History: “To support travel and dissertation research for a fourth-year history graduate student.”
 
 * 2019 David Bruce Parker Memorial Prize, University of Rochester Dept. of History: “To the graduate student who best represents the dedication and courage which characterized David’s participation in the graduate program.”
