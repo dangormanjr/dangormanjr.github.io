@@ -18,6 +18,8 @@
 
 ## Textbooks and Curricula ##
 
+* Contributor to *Acts of Faith: Religion and the American West*, ed. Jessica Criales. New-York Historical Society and the Eiteljorg Museum. Albuquerque: University of New Mexico Press, tentatively Fall 2023. 
+
 * “California Joe’s First Trail (1884) Spotlight.” Nickels and Dimes: From the Collections of Johannsen and LeBlanc (Northern Illinois University), Oct. 2020. [https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe](https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe).
 
 * Contributor to the 2019–20 edition of *The American Yawp: A Massively Collaborative Open U.S. History Textbook*. [http://www.americanyawp.com/text/contributors/](http://www.americanyawp.com/text/contributors/).
