@@ -1,4 +1,4 @@
-# Honors and Awards
+# Fellowships, Grants, & Awards
 
 ## External ##
 * Biosophical Institute Frederick Kettner Scholarship, 2022 ($10,000).
