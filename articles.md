@@ -2,7 +2,7 @@
 
 ## Reviews ##
 
-* Review of *Generations of Reason: A Family’s Search for Meaning in Post-Newtonian England* by Joan L. Richards. *Religious Studies Review* (forthcoming).
+* Review of *Generations of Reason: A Family’s Search for Meaning in Post-Newtonian England* by Joan L. Richards. *Religious Studies Review* 48, no. 3 (forthcoming).
 
 * Review of *John E. Fetzer and the Quest for the New Age* by Brian C. Wilson. *Reading Religion*, Sept. 16, 2021. [https://readingreligion.org/9780814345306/john-e-fetzer-and-the-quest-for-the-new-age/](https://readingreligion.org/9780814345306/john-e-fetzer-and-the-quest-for-the-new-age/).
 
@@ -16,13 +16,17 @@
 
 * Review of *The Ordeal of the Reunion: A New History of Reconstruction* by Mark Wahlgren Summers. *Essays in History* 57 (2015). [http://www.essaysinhistory.com/the-ordeal-of-the-reunion-a-new-history-of-reconstruction/](http://www.essaysinhistory.com/the-ordeal-of-the-reunion-a-new-history-of-reconstruction/).
 
-## Textbooks and Curricula ##
+## Textbooks, Curricula, and Other Academic Publications ##
 
 * Contributor to *Acts of Faith: Religion and the American West*, ed. Jessica Criales. New-York Historical Society and the Eiteljorg Museum. Albuquerque: University of New Mexico Press, tentatively Fall 2023. 
+
+* “Notes on Abner Woolman.” *Quaker History* 111, no. 2 (Fall 2022): pages TBD.
 
 * “California Joe’s First Trail (1884) Spotlight.” Nickels and Dimes: From the Collections of Johannsen and LeBlanc (Northern Illinois University), Oct. 2020. [https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe](https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe).
 
 * Contributor to the 2019–20 edition of *The American Yawp: A Massively Collaborative Open U.S. History Textbook*. [http://www.americanyawp.com/text/contributors/](http://www.americanyawp.com/text/contributors/).
+
+*	“Divine Dimes: My Adventures Down the Rabbit Hole of Religious Pulp Literature.” *Commonplace* 16, No. 3 (Summer 2016). [http://common-place.org/book/divine-dimes-my-adventures-down-the-rabbit-hole-of-religious-pulp-literature/](http://commonplace.online/article/divine-dimes/).
 
 ## Academic Journalism ##
 
