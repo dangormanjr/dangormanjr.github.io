@@ -12,7 +12,7 @@
 
 * “Fair Traveler: May Bragdon at the Columbian and Pan-American Expositions.” “(Im)material Culture: Identity and Agency in Commonplace Objects,” 28th Annual Milton Plesur Graduate History Conference, University at Buffalo, March 8–9, 2019. [https://gsa.buffalo.edu/ubgha/milton-plesur-graduate-history-conference/2019-2/](https://gsa.buffalo.edu/ubgha/milton-plesur-graduate-history-conference/2019-2/).
 
-* Workshops at the 2018 Parliament of the World’s Religions, co-facilitated with Rev. Dr. C. Denise Yarbrough, E. Finkle, G. Henry, et al. Toronto, ON, Canada, November 2–6, 2018: 
+* Workshops at the 2018 Parliament of the World’s Religions, co-facilitated with Rev. Dr. C. Denise Yarbrough, E. Finkle, E. Henry, et al. Toronto, ON, Canada, November 2–6, 2018: 
     * “Interfaith Café: Interfaith and Intercultural Dialogue on Parliament Themes."
     * “Interfaith Leadership for 21st-Century Professionals." 
     * “Harmony Among Generations: An Intergenerational Dialogue.” 
