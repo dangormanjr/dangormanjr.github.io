@@ -4,7 +4,7 @@ Principal Investigator, *The Hill Cumorah Legacy Project*. Rochester Institute o
 
 * Supervised 31 students and coordinated with LDS officials in New York and Utah. 
 
-![Hill_Cumorah_Project_Homepage_Screenshot.png](/images?Hill_Cumorah_Project_Homepage_Screenshot.png)
+![Hill_Cumorah_Project_Homepage_Screenshot.png](/images/Hill_Cumorah_Project_Homepage_Screenshot.png)
 
 *The Frederick Douglass Project*. Principal Investigators: Jessica Lacher-Feldman and Autumn Haag, University of Rochester Libraries, Dept. of Rare Books, Special Collections, & Preservation.
 
