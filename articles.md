@@ -2,7 +2,7 @@
 
 ## Reviews ##
 
-* Review of *Generations of Reason: A Family’s Search for Meaning in Post-Newtonian England* by Joan L. Richards. *Religious Studies Review* 48, no. 3 (forthcoming).
+* Review of *Generations of Reason: A Family’s Search for Meaning in Post-Newtonian England* by Joan L. Richards. *Religious Studies Review* 48, no. 3 (Sept. 2022): 402–03. [https://doi.org/10.1111/rsr.16046](https://user-images.githubusercontent.com/58602373/210118491-ce52ad34-1cbc-40be-a035-3053c333044f.png).
 
 * Review of *John E. Fetzer and the Quest for the New Age* by Brian C. Wilson. *Reading Religion*, Sept. 16, 2021. [https://readingreligion.org/9780814345306/john-e-fetzer-and-the-quest-for-the-new-age/](https://readingreligion.org/9780814345306/john-e-fetzer-and-the-quest-for-the-new-age/).
 
