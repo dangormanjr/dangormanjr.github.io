@@ -18,7 +18,7 @@
 
 ## Textbooks, Curricula, and Other Academic Publications ##
 
-* Contributor to *Acts of Faith: Religion and the American West*, ed. Jessica Criales. New-York Historical Society and the Eiteljorg Museum. Albuquerque: University of New Mexico Press, tentatively Fall 2023. 
+* Contributor to *Religion and the American West: A Companion to the Acts of Faith Exhibition*, ed. Jessica Lauren Nelson. New-York Historical Society and the Eiteljorg Museum of Native Americans and Western Art. Albuquerque: University of New Mexico Press, anticipated Fall 2023.
 
 * “Notes on Abner Woolman.” *Quaker History* 111, no. 2 (Fall 2022): pages TBD.
 
@@ -29,6 +29,8 @@
 *	“Divine Dimes: My Adventures Down the Rabbit Hole of Religious Pulp Literature.” *Commonplace* 16, No. 3 (Summer 2016). [http://common-place.org/book/divine-dimes-my-adventures-down-the-rabbit-hole-of-religious-pulp-literature/](http://commonplace.online/article/divine-dimes/).
 
 ## Academic Journalism ##
+
+* Interviewer for Working PhDs podcast. University of Rochester, 2022. [https://workingphds.com/working-phd-podcast/](https://user-images.githubusercontent.com/58602373/210118742-e7d53c33-635c-42a6-8807-0dfeaa0a2bdb.png).
 
 * “Coming Back from COVID: The Grad Student Perspective.” The American Historian no. 28 (June 2021): 22–24. [https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/](https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/).
 
