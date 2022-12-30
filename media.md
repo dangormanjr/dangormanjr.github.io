@@ -14,7 +14,9 @@ This page provides an index of media appearances and contributions.
 
 *	Interviewed in: Lynch, Emily Hessney. “Dan Gorman, On a Tuesday at Orange Glory.” *I Heart Roc*, Interview No. 76, March 22, 2017. [http://www.iheartroc.com/work/dan-gorman/](http://www.iheartroc.com/work/dan-gorman/).
 
-## Theatre Credits ##
+## Theatre and Music Credits ##
+* Contributed audio to OK GO’s “Art Together Now” crowdsourced music video series, released Apr.–May 2021. [https://okgosandbox.org/art-together-now](https://user-images.githubusercontent.com/58602373/210118838-0d835dcb-9391-4bc6-8d1f-4f8204ec553c.png). 
+
 * “Shopkeeper 19,” in *The Government Inspector*. Directed and adapted by Nigel Maister. Dec. 2020 virtual production, University of Rochester International Theatre Program. [http://www.sas.rochester.edu/theatre/productions/current/government-inspector/index.html](http://www.sas.rochester.edu/theatre/productions/current/government-inspector/index.html).
 
 *	Featured vocalist, *Pump It Up: A 40th Anniversary Celebration of New Wave*, February 17, 2018 concert, University of Rochester Institute for Popular Music.
