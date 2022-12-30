@@ -1,6 +1,11 @@
 # Conferences #
 
 ## Conference Papers and Presentations ##
+* “Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption.” “Confronting Crises: History for Uncertain Times,” Organization for American Historians Virtual Conference on American History, April 2023 (date TBD).
+- I am also the organizer of this panel. Fellow presenters: Kate Hanch, Jason Ānanda Josephson Storm, and Alexis Wells-Oghoghomeh. Chair: Margarita Simon Guillory. Commentator: Benjamin E. Zeller.
+
+* “Phantom Luminaries: Frederick Willis, Spiritualism, and Paranormal Investigators in the Age of Disruption.” Religion and Culture in the Americas Seminar, Center for American History and Culture, The Newberry Library, Sept. 30, 2022. [https://www.newberry.org/09302022-daniel-gorman-jr-university-rochester](https://user-images.githubusercontent.com/58602373/210118776-87fd1fab-fcf7-4b39-8d84-d641957fe690.png).
+
 *	“Closed Mouth, Open Mind: Lewis Henry Morgan and the Religion of Cognition.” “Radicalism & Reform,” 43rd Annual Conference of the Nineteenth-Century Studies Association, Rochester, NY, Mar. 18, 2022. Also: “Belief & Identity,” 12th Annual Graduate Conference of the Department of History, Syracuse University, Mar. 26, 2021. 
 
 * Co-author with Nigel Maister, Meaghan Moody, and Joshua Romphf. “Managing The Government Inspector: Staging a Virtual Play in a Pandemic.” DHSI 2021: Project Management in the Humanities, University of Victoria, June 9, 2021.
