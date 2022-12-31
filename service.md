@@ -1,6 +1,10 @@
 # Volunteer Experience and Professional Service
 
 ## Historical Work ##
+* Program Committee member, 58th Annual Conference of the Mormon History Association: “Beginnings,” Nov. 2022–June 2023.
+
+* Volunteer, Saving Ukrainian Cultural Heritage Online (SUCHO), Mar. 2022–Present.
+
 * Organization of American Historians Graduate Student Committee, Jan. 2022–Apr. 2023.
 
 * Editorial board member, The American Historian, June 2020–Present. 
@@ -46,6 +50,10 @@
 * Undergraduate Admissions Alumni Interviewer, University of Rochester, Winter 2015–Winter 2019. 
 
 ## University Affairs ##
+* Standard IV (Student Experience) Committee, Middle States Commission on Higher Education Reaccreditation Self-Study, University of Rochester, 2022–24.
+
+* History Dept. Representative, AS&E Graduate Student Association, University of Rochester, AY2021–22.
+
 * President, University of Rochester AS&E Graduate Student Association (GSA), May 2019–May 2020.
   * Supervised GSA events and schedule, in collaboration with AS&E administrators; liaison to UR Office of the President; and consulted on COVID-19 relief efforts.  
   * AS&E Representative, University of Rochester Graduate Student and Postdoctoral Fellow Advisory Council, Sept. 2019–May 2020: Consulted on university-wide grad student academic and co-curricular policies; co-authored a report on the state of grad student life for the Board of Trustees; consulted on university-wide COVID-19 relief efforts.
@@ -78,6 +86,8 @@
   * Interviewed all three finalists; submitted feedback to the Office of the President.
 
 ## Political Work ##
+* Copyediting and Technical Writing Volunteer, Keeping Our Promise, Inc. (Rochester, NY), Aug. 2021–Present.
+
 * Volunteer, Joe Biden for President, Fall 2020. 
 
 * Volunteer, Mitch Gruber for Rochester City Council, Summer 2017.
