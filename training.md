@@ -3,11 +3,17 @@
 This page lists supplementary training that I have completed outside of my academic coursework.
 
 ## Licenses and Certifications
+* May 16, 2022: Social-Behavioral-Educational Researchers 2—Refresher 1, for University of Rochester, Collaborative Institutional Training Initiative (CITI) Program, Record ID 48611908. Expires May 15, 2025. [https://www.citiprogram.org/verify/?wdeae15ab-8921-426b-ae15-1cc3aabbad49-48611908](https://user-images.githubusercontent.com/58602373/210118939-cf1d6b57-ebb7-482f-9aa5-617718905828.png).
+
 * July 2019: Social-Behavioral-Educational Researchers — Basic Course, for University of Rochester, Collaborative Institutional Training Initiative (CITI) Program, Record ID 30159648. Expires July 23, 2022. [https://www.citiprogram.org/verify/?wff635b3b-95c3-4d62-b997-83fb700151eb-30159648](https://www.citiprogram.org/verify/?wff635b3b-95c3-4d62-b997-83fb700151eb-30159648).
 
 * May 2019: Responsible Conduct of Research (RCR) for UR Graduate Students and Postdoctoral Appointees, Collaborative Institutional Training Initiative (CITI) Program, Record ID 30159649. No expiration date. [http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649](http://www.citiprogram.org/verify/?w812f308e-36f7-4bd0-973e-ad5b3406b56a-30159649).
 
 ## Professional Development
+* Certificate in Digital Curation, Library Juice Academy, awarded July 31, 2022, after completing six months of asynchronous coursework. [https://certificates.libraryjuiceacademy.com/202207certs/daniel.gorman.dc.pdf](https://user-images.githubusercontent.com/58602373/210118970-6658e8e2-5dd6-47ca-aac9-f42f0a227b51.png).
+
+* Certificate of Completion, Workshop: “Advanced Oral History Training: Mastering the Interview—Techniques and Methods,” GIRES, Nov. 21, 2021.
+
 * Certificate of Completion, “Introduction to Metadata,” Library Juice Academy, Aug. 29, 2021, [https://certificates.libraryjuiceacademy.com/202108/daniel.gorman.jr.202108.pdf](https://certificates.libraryjuiceacademy.com/202108/daniel.gorman.jr.202108.pdf).
 
 * University of Rochester Safe Space Training Certificate, valid for 2021–24. 
