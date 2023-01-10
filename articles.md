@@ -20,7 +20,7 @@
 
 * Contributor to *Religion and the American West: A Companion to the Acts of Faith Exhibition*, ed. Jessica Lauren Nelson. New-York Historical Society and the Eiteljorg Museum of Native Americans and Western Art. Albuquerque: University of New Mexico Press, anticipated Fall 2023.
 
-* “Notes on Abner Woolman.” *Quaker History* 111, no. 2 (Fall 2022): pages TBD.
+* “Notes on Abner Woolman.” *Quaker History* 111, no. 2 (Fall 2022): 30–40. doi:10.1353/qkh.2022.0011. [https://muse.jhu.edu/pub/88/article/873292](https://muse.jhu.edu/pub/88/article/873292).
 
 * “California Joe’s First Trail (1884) Spotlight.” Nickels and Dimes: From the Collections of Johannsen and LeBlanc (Northern Illinois University), Oct. 2020. [https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe](https://dimenovels.lib.niu.edu/learn/spotlights/californiajoe).
 
