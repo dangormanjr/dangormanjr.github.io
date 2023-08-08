@@ -1,4 +1,4 @@
-# Undergraduate Work
+# Undergraduate Archive
 
 This page provides an archive of academic and cocurricular work I did as an undergraduate at the University of Rochester. 
 
