@@ -8,8 +8,11 @@
 - title: Papers
   url: /papers/
 
-- title: Articles
-  url: /articles/
+#- title: Articles
+  #url: /articles/
+
+- title: Additional Publications
+  url: /additional-pubs/
 
 - title: Digital and Collaborative Projects
   url: /digital-and-collaborative-projects/
