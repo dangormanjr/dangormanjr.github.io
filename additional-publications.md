@@ -1,4 +1,4 @@
-# Articles #
+# Additional Publications #
 
 ## Reviews ##
 
