@@ -8,8 +8,8 @@
 - title: Papers
   url: /papers/
 
-#- title: Articles
-  #url: /articles/
+- title: Articles
+  url: /articles/
 
 - title: Additional Publications
   url: /additional-pubs/
@@ -43,6 +43,3 @@
   
 - title: Undergraduate Work
   url: /undergraduate-work/
-
-- title: Test Two
-  url: /test-two/
