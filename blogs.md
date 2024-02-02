@@ -13,5 +13,3 @@
 *	“Lindy Hop For All: Interviews and Oral History of the Frankie Manning Foundation.” The Frankie Manning Foundation, September 26, 2015. [http://www.frankiemanningfoundation.org/lindy-hop-for-all-interviews-and-oral-history-of-the-frankie-manning-foundation/](http://www.frankiemanningfoundation.org/lindy-hop-for-all-interviews-and-oral-history-of-the-frankie-manning-foundation/).
 
 *	Blog posts for Villanova University’s *Historically Speaking* website, 2015–16. [https://vugradhistory.wordpress.com/author/dgormanj/](https://vugradhistory.wordpress.com/author/dgormanj/).
-
-*	Post social media [https://post.news/@/dangorman2](https://post.news/@/dangorman2)
