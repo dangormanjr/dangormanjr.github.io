@@ -1,6 +1,6 @@
 # Teaching
 
-I have experience teaching U.S. cultural and religious history, as well as topics in the history of Western civilization.
+I have taught U.S. cultural and religious history, digital history, and topics in the history of Western civilization.
 
 ## Instructor of Record ##
 
@@ -11,6 +11,8 @@ I have experience teaching U.S. cultural and religious history, as well as topic
 * Adjunct professor, “Cults, Chakras, & Crunchy Granola: New Age Religions in America,” undergraduate intensive course, University of Rochester, July 2019. 
 
 ## Continuing Education ##
+
+* Instructor, six-part course, “Contested Futures: Religion and Science in the United States,” The Highlands at Pittsford (Senior Living Community), Pittsford, NY, June 3–17 and July 1–15, 2024. 
 
 * Instructor, four-part course, “Cults, Chakras, and Crunchy Granola: New Religious Movements in America, from the 1800s to Present,” The Highlands at Pittsford (Senior Living Community), Pittsford, N.Y., June 2–23, 2020. Conducted via Zoom because of COVID-19.
 
