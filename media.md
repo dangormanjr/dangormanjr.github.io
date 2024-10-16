@@ -3,6 +3,8 @@
 This page provides an index of media appearances and contributions.
 
 ## Radio / Podcasts ##
+* Interviewed in “Why and How These Graduate Students Side Hustle.” *Personal Finance for PhDs*. Produced by Emily Roberts. June 19, 2023. [https://pfforphds.com/why-and-how-these-graduate-students-side-hustle/](https://pfforphds.com/why-and-how-these-graduate-students-side-hustle/).
+
 * Interviewed in *Interviews with Technical People*, Oct. 2, 2020. [https://open.spotify.com/episode/6EA0CzWioLcn479MsguJRu?si=tRI8SWeJSE6ieJpz94ndtw](https://open.spotify.com/episode/6EA0CzWioLcn479MsguJRu?si=tRI8SWeJSE6ieJpz94ndtw).
 
 * Interviewed in “Just One Story: Joseph Campbell and ‘The Hero’s Journey.’” Produced by Matthew Lazin-Ryder. *Ideas with Nahlah Ayed*. Canadian Broadcasting Corporation, September 3, 2019. [https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649](https://www.cbc.ca/radio/ideas/how-mythologist-joseph-campbell-made-luke-skywalker-a-hero-1.5262649).
