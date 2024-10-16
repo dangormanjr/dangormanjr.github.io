@@ -5,7 +5,8 @@
 
 * Co-organizer with Andrew Gerstenberger, Brigid Wallace, et al. “Thriving as an Early Career Historian.” Solicited session, Organization of American Historians 2024 Conference on American History, New Orleans, Apr. 13, 2024.
 
-* “Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption.” “Confronting Crises: History for Uncertain Times,” Organization for American Historians Virtual Conference on American History, Apr. 27, 2023. I was also the organizer of this panel. Fellow presenters: Kate Hanch, Jason Ānanda Josephson Storm, and Alexis Wells-Oghoghomeh. Chair: Margarita Simon Guillory. Commentator: Benjamin E. Zeller.
+* “Phantom Luminaries: Spiritualism and Paranormal Investigators in the Age of Disruption.” “Confronting Crises: History for Uncertain Times,” Organization for American Historians Virtual Conference on American History, Apr. 27, 2023.
+  *I was also the organizer of this panel. Fellow presenters: Kate Hanch, Jason Ānanda Josephson Storm, and Alexis Wells-Oghoghomeh. Chair: Margarita Simon Guillory. Commentator: Benjamin E. Zeller.
 
 * “Phantom Luminaries: Frederick Willis, Spiritualism, and Paranormal Investigators in the Age of Disruption.” Religion and Culture in the Americas Seminar, Center for American History and Culture, The Newberry Library, Sept. 30, 2022. [https://web.archive.org/web/20220919202349/https://www.newberry.org/09302022-daniel-gorman-jr-university-rochester](https://web.archive.org/web/20220919202349/https://www.newberry.org/09302022-daniel-gorman-jr-university-rochester).
 
