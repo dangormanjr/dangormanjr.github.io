@@ -1,6 +1,13 @@
 # Volunteer Experience and Professional Service
 
-## Historical Work ##
+## Academic Work ##
+
+* Collaborator, Center for Scholars and Storytellers, UCLA, Apr. 2024–Present.
+
+* Consulting Party, Clara Barton NHS Partners Interpretive Planning Project, June 2023–Sept. 2024.
+
+* Volunteer Researcher, *History Unfolded: U.S. Newspapers and the Holocaust*, United States Holocaust Memorial Museum, May–July 2023.
+
 * Program Committee member, 58th Annual Conference of the Mormon History Association: “Beginnings,” Nov. 2022–June 2023.
 
 * Volunteer, Saving Ukrainian Cultural Heritage Online (SUCHO), Mar. 2022–Present.
