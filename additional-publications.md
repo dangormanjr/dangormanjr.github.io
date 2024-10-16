@@ -18,6 +18,8 @@
 
 ## Textbooks, Curricula, and Other Academic Publications ##
 
+* “The Hill Cumorah Legacy Project: Capturing Rochester’s Latter-day Saint History.” *Rochester History* 82, no. 1 (Fall 2024). [https://rochesterhistory.rit.edu/article/teaching-the-roc/](https://rochesterhistory.rit.edu/article/teaching-the-roc/), [https://rochesterhistory.rit.edu/artifact/document-descriptions-for-the-hill-cumorah-legacy-project-capturing-rochesters-latter-day-saint-history/](https://rochesterhistory.rit.edu/artifact/document-descriptions-for-the-hill-cumorah-legacy-project-capturing-rochesters-latter-day-saint-history/). 
+
 * Contributor to *Religion and the American West: A Companion to the Acts of Faith Exhibition*, ed. Jessica Lauren Nelson. New-York Historical Society and the Eiteljorg Museum of Native Americans and Western Art. Albuquerque: University of New Mexico Press, anticipated Fall 2023.
 
 * “Notes on Abner Woolman.” *Quaker History* 111, no. 2 (Fall 2022): 30–40. doi:10.1353/qkh.2022.0011. [https://muse.jhu.edu/pub/88/article/873292](https://muse.jhu.edu/pub/88/article/873292).
