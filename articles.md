@@ -12,5 +12,5 @@
 
 ## Peer-Reviewed Book Chapters ##
 
-* Co-author with Erin Francisco Opalich, Madeline Ullrich, and Alexander J. Zawacki. “A Tale of Three Disciplines: Considering the (Digital) Future of the Mid-doc Fellowship in Graduate Programs.” In The Digital Futures of Graduate Study in the Humanities, ed. Simon Appleford, Gabriel Hankins, and Anouk Lang. Forthcoming, University of Minnesota Press.
+* Co-author with Erin Francisco Opalich, Madeline Ullrich, and Alexander J. Zawacki. “A Tale of Three Disciplines: Considering the (Digital) Future of the Mid-doc Fellowship in Graduate Programs.” In *Digital Futures of Graduate Study in the Humanities*, ed. Simon Appleford, Gabriel Hankins, and Anouk Lang. University of Minnesota Press, Dec. 2024.
 
