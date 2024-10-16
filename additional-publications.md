@@ -2,7 +2,7 @@
 
 ## Reviews ##
 
-* Review of *Prisoners of Congress: Philadelphia’s Quakers in Exile, 1777–1778*, by Norman E. Donoghue II. *Journal of the Early Republic* 44, no. 2 (Summer 2024): 288-290. [https://doi.org/10.1353/jer.2024.a932154]](https://doi.org/10.1353/jer.2024.a932154).
+* Review of *Prisoners of Congress: Philadelphia’s Quakers in Exile, 1777–1778*, by Norman E. Donoghue II. *Journal of the Early Republic* 44, no. 2 (Summer 2024): 288-290. [https://doi.org/10.1353/jer.2024.a932154](https://doi.org/10.1353/jer.2024.a932154).
 
 * Review of *Generations of Reason: A Family’s Search for Meaning in Post-Newtonian England* by Joan L. Richards. *Religious Studies Review* 48, no. 3 (Sept. 2022): 402–03. [https://doi.org/10.1111/rsr.16046](https://doi.org/10.1111/rsr.16046).
 
