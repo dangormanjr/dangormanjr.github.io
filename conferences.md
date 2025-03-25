@@ -3,6 +3,9 @@
 ## Conference Papers and Presentations ##
 * “Closed Mouth, Open Mind: Lewis Henry Morgan and the Religion of Cognition.” History of Anthropology Working Group, Consortium for History of Science, Technology, and Medicine, Mar. 4, 2025. Previously: “Radicalism & Reform,” 43rd Annual Conference of the Nineteenth-Century Studies Association, Rochester, NY, Mar. 18, 2022; “Belief & Identity,” 12th Annual Graduate Conference of the Department of History, Syracuse University, Mar. 26, 2021.
 
+* “The Variable Spiritualist Ministry of Frederick Willis.” “Knowledge and Belief,” 2024 Society for U.S. Intellectual History Conference, Boston, Nov. 16, 2024.
+  * I organized this panel. Other presenters: Jaimie D. Crumley and Holly Jackson. Chair/commentator: Tona Hangen.
+
 * “Toward a Spiritualist Theology: The Counter-Esotericism of Frederick Willis, 1830–1914.” American Academy of Religion Annual Meeting Online June Sessions, June 26, 2024.
 
 * Co-organizer with Andrew Gerstenberger, Brigid Wallace, et al. “Thriving as an Early Career Historian.” Solicited session, Organization of American Historians 2024 Conference on American History, New Orleans, Apr. 13, 2024.
