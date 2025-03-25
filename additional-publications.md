@@ -34,7 +34,7 @@
 
 ## Academic Journalism ##
 
-* Interviewer for Working PhDs podcast. University of Rochester, 2022. [https://workingphds.com/working-phd-podcast/](https://workingphds.com/working-phd-podcast/)).
+* Interviewer for Working PhDs podcast. University of Rochester, 2022. [https://workingphds.com/working-phd-podcast/](https://web.archive.org/web/20230531005903/https://workingphds.com/working-phd-podcast/).
 
 * “Coming Back from COVID: The Grad Student Perspective.” The American Historian no. 28 (June 2021): 22–24. [https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/](https://www.oah.org/tah/issues/2021/the-state-of-graduate-education/coming-back-from-covid-the-grad-student-perspective/).
 
