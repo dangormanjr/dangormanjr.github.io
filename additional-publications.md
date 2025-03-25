@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/5442266f-1020-49bf-9f84-06505d4ae9a4)# Additional Publications #
+# Additional Publications #
 
 ## Reviews ##
 
