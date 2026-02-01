@@ -20,3 +20,5 @@ Currently I am a history Ph.D. candidate at the University of Rochester. I recei
 - Philadelphia Jewish history.
 
 - The legacy of U.S. anthropologist Lewis Henry Morgan.
+
+The views, opinions and material expressed here are those of the author and have not been reviewed or approved by the University of Rochester.
